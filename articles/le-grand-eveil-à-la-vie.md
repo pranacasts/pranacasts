@@ -1,4 +1,4 @@
-title: Le grand éveil à la vie
+title: Le Grand Eveil A La Vie
 tags: []
 intro: Nous assistons à de nombreux changements sur notre planète, énergétiques j’entends. Le taux vibratoire général augmente, et cela a pour conséquence d’influencer directement nos propres énergies, car je rappelle ici que nous ne sommes qu’une partie du Tout qui nous entoure.
 ---
