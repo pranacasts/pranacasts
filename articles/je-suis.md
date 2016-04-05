@@ -1,4 +1,4 @@
-title: Je Suis
+title: Je suis
 tags: []
 intro: Qu'est-ce qui nous définit ? Notre profession, notre prénom, l'appartenance à une famille en particulier ou à un groupe social ? N'y a-t-il pas plus que ça ?
 ---
