@@ -1,4 +1,4 @@
-title: Je Te Veux Mais Tu Me Fais Peur
+title: Je te veux mais tu me fais peur
 tags: []
 intro: Non, il ne s'agit pas d'une déclaration d'amour mais d'une chose qui s'est révélée à moi ces derniers temps et qui marque le paradoxe entre le désir et la pensée profonde ou plus précisément entre ce que l’on souhaite et ce que l’on obtient en finalité.
 ---
