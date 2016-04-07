@@ -1,6 +1,6 @@
 title: Créez la vie que vous voulez vraiment
 tag: []
-intro: La raison du mal-être de beaucoup de personnes provient du fait que nous sommes déconnectés de nos propres besoins. Nombreux sont ceux qui arrivent en fin de vie avec le sentiment d'avoir loupé quelque chose, de ne pas avoir trouvé leur voie ou leur bonheur car ils ont au final passé leur temps à tenter de rentrer dans des cases, à satisfaire les autres et à suivre un chemin bien tracé au lieu de prendre des risques et sortir de leur zone de confort, quitte à ne ressembler à personne d'autre qu'à eux-mêmes. Pourtant, la vie est un chemin avant tout solitaire devant nous permettre de nous révéler à nous-même, et cela ne peut passer que par la liberté. 
+intro: La raison du mal-être de beaucoup de personnes provient du fait que nous sommes déconnectés de nos propres besoins.
 ---
 >J'aurais voulu avoir le courage de vivre la vie que je voulais vraiment, et pas celle que les autres attendaient de moi.
 
