@@ -1,5 +1,5 @@
 title: Créez la vie que vous voulez vraiment
-tag: []
+tag: [développement personnel, suivre son coeur]
 intro: La raison du mal-être de beaucoup de personnes provient du fait que nous sommes déconnectés de nos propres besoins.
 ---
 >J'aurais voulu avoir le courage de vivre la vie que je voulais vraiment, et pas celle que les autres attendaient de moi.
