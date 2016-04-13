@@ -1,16 +1,13 @@
 title: Quitter par amour
-tags:[amour, autonomie, affirmation de soi]
+tags: [amour, autonomie, affirmation de soi]
 series: [guerir-sa-blessure-dabandon]
 intro:
 ---
-
 Bien que cela s’apparente à une contradiction, il existe des cas dans lesquels la rupture soit la seule solution malgré les sentiments qui nous unissent à l’autre. 
 
 Cela se manifeste à mon sens dans deux configurations principales : le quitter **par amour pour lui** ou **par amour pour nous**.
 
-
 ##*Je te quitte pour te permettre d’être heureux*
-
 
 Lorsque l’on quitte une personne dans son propre intérêt à elle, c’est soit que l’on a pris conscience qu’elle souffre d’une manière ou d’une autre au sein de la relation amoureuse, soit que cette relation l’empêche de réaliser des objectifs personnels qui sont pourtant importants pour son évolution sur du long terme.
 
