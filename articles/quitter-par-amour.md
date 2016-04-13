@@ -1,7 +1,7 @@
 title: Quitter par amour
 tags: [amour, autonomie, affirmation de soi]
 series: [guerir-sa-blessure-dabandon]
-intro: Bien que cela s’apparente à une contradiction, il existe des cas dans lesquels la rupture soit la seule solution malgré les sentiments qui nous unissent à l’autre.
+intro: Quitter une personne que l'on aime est un choix basé sur l'amour, celui que l'on a pour soi ou celui que l'on éprouve pour l'autre.
 ---
 Bien que cela s’apparente à une contradiction, il existe des cas dans lesquels la rupture soit la seule solution malgré les sentiments qui nous unissent à l’autre. 
 
