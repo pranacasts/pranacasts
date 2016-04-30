@@ -1,5 +1,6 @@
 title: Décider pour réussir sa vie
-tags : [autonomie, affirmation de soi, développement personnel]
+tags: [autonomie, affirmation de soi, développement personnel]
+articles: [creez-la-vie-que-vous-voulez-vraiment]
 intro: La seule chose qui distingue les personnes qui réussissent et les autres est la capacité qu'ont les premières à prendre des décisions.
 ---
 J’ai toujours été observatrice, me posant des questions très jeune sur les différences de parcours entre les gens. Au-delà des facteurs socio-culturels, j’étais intriguée par le fait que certaines personnes soient capables de matérialiser tout ce qu’elles souhaitent lorsque d’autres semblent condamnées à un éternel recommencement, à un chemin de vie quelque peu plat et jalonné d’échecs.
