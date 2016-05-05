@@ -7,13 +7,13 @@ Le problème le plus fréquent dans la communication est que l’on ne parvient 
 
 Nous sommes tous semblables en notre qualité d’Etres Humains. Quelle que soit notre couleur de peau, notre sexe ou notre apparence physique, nous sommes tous les mêmes. Ce qui nous distingue des autres est notre personnalité, qui est conditionnée par le pays dans lequel on vit, la manière dont on a été élevé et les épreuves que nous rencontrons tout au long de notre vie.
 
-Ces critères sont extrêmement importants car ce sont eux qui déterminent notre manière de voir les choses, de réagir, nos opinions et notre sensibilité. C’est bien pour cela que certaines choses paraissent terribles pour quelques personnes et beaucoup moins pour d’autres, ou que face à la même peinture ou le même paysage on ne verra pas la même chose que notre voisin.
+Ces critères sont extrêmement importants car ce sont eux qui déterminent notre manière de voir le monde, de réagir, nos opinions et notre sensibilité. C’est bien pour cela que certaines choses paraissent terribles pour quelques personnes et beaucoup moins pour d’autres, ou que face à la même peinture ou le même paysage on ne décrira pas les mêmes éléments que notre voisin.
 
 Une fois compris cela, il devient clair que l’on réagit en fonction de notre bagage émotionnel, de nos croyances et de notre personnalité.
 
 >**Il n’y a pas qu’une seule réalité, il en existe autant que d’êtres humains**.
 
-Ma réalité correspond à ma manière d’envisager, de percevoir et de ressentir les choses. Cela correspond aussi à ce qui m’est acceptable, compréhensible et que je considère comme normal, de qui ne l’est pas. 
+Ma réalité correspond à ma manière d’envisager, de percevoir et de ressentir les choses. Cela correspond aussi à ce qui m’est acceptable, compréhensible et que je considère comme normal, de ce qui ne l’est pas. 
 
 Pour vous donner un exemple personnel illustrant cela, lorsque j’ai découvert l’Indonésie je ne comprenais pas pourquoi les gens se permettaient d’entrer chez moi sans aucune autorisation, que ce soit le jardinier, le voisin ou n’importe qui d’autre d’ailleurs, parfois allant même jusqu’à s’installer confortablement dans mon salon. Cela ne me semblait pas normal et devenait quelque peu compliqué surtout lorsque j’effectuais mes soins. Je considérais ça comme un manque d’éducation.
 
