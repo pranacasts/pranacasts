@@ -12,7 +12,7 @@ J’ai réalisé un peu plus fort qu’à chaque fois que je me suis abandonnée
 
 J’ai repensé à ce jour où, occupant un poste qui ne me convenait pas du tout, j’ai dit à l’Univers que j’avais le sentiment de me perdre et que je souhaitais être libérée de cette situation professionnelle. J’ai parlé avec tout mon coeur, lui disant que je remettais tout entre ses mains car j’étais fatiguée de lutter, et il n’en a pas fallu plus pour que 4 jours exactement après cette demande, mon employeur me propose de lui-même une rupture de contrat à l’amiable. Tout s’est donc passé dans la douceur et j’ai pu quitter ce poste.
 
-Tout de suite après j’ai rencontré une guérisseuse et médium qui a été mise sur ma route totalement par « hasard » et qui m’a demandé ce que j’attendais pour exercer mes dons à temps-plein. Et d’autres évènements se sont greffés sur tout ça et m’ont permise de me dégager de toutes mes obligations et de m’installer à mon compte, sans le moindre retard dans le planning que je m’étais fixée.
+Tout de suite après j’ai rencontré une guérisseuse et médium qui a été mise sur ma route totalement par « hasard » et qui m’a demandé ce que j’attendais pour exercer mes dons à temps-plein. Et d’autres évènements se sont greffés sur tout ça et m’ont permise de me dégager de toutes mes obligations et de m’installer à mon compte, sans le moindre retard dans le planning que je m’étais fixé.
 
 Tous ces évènements c’est ce que l’on appelle les synchronicités, ces choses ou ces personnes qui arrivent à vous sans trop que vous ne sachiez pourquoi et qui vous apportent des prises de conscience et l’opportunité de donner un autre souffle à votre vie.
 
@@ -28,7 +28,7 @@ Ce n’est pas forcément la situation que l’on abandonne (par exemple pour un
 
 ##Pourquoi est-ce que s’abandonner permet de débloquer les situations ?
 
-Le principe est en fait le même que pour la loi d’attraction ou la méthode Ho’Oponopono, qui nécessitent que l’on se détache du résultat attendu.  En fait, tout fonctionnant autour de nous comme un aimant attirant à lui les énergies de même vibration, lorsque l’on s’attache à penser à une situation qui provoque en nous de la frustration, c’est comme si l’on attirait à nous encore davantage de frustrations, donc il est peu probable qu’une solution soit trouvée dans la rapidité.
+Le principe est en fait le même que pour la loi d’attraction ou la méthode Ho’Oponopono, qui nécessitent que l’on se détache du résultat attendu.  En fait, tout fonctionnant autour de nous comme un aimant attirant à lui les énergies de même vibration, lorsque l’on s’attache à penser à une situation qui provoque en nous de la frustration, c’est comme si l’on attirait à nous encore davantage de frustration, donc il est peu probable qu’une solution soit trouvée dans la rapidité.
 
 Qui n’a jamais vécu ce moment où, alors même que l’on avait cessé de penser à une personne ou à une problématique du quotidien, les choses se débloquaient comme par magie ? J’ai aussi souvent remarqué que les personnes en recherche d’emploi peuvent passer des mois sans recevoir la moindre réponse à leurs candidatures et que finalement, dès lors qu’elles se libèrent d’un trop-plein de pression, une proposition qui sera suivie de plusieurs autres finit par se présenter à elles. Ce n’est pas un hasard, c’est le positionnement adopté par la personne qui change tout.
 
