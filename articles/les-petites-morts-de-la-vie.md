@@ -1,12 +1,12 @@
 title: Les petites morts de la vie
 tags: [aller mieux, affirmation de soi]
 series: [la-nuit-noire-de-lame]
-intro: Nous mourons plusieurs fois au sein d'une même vie. la mort n'est pas la fin de la vie, mais celle d'un état. Les idées noires sont la manifestation du cri de notre âme qui nous pousse à renaître à une nouvelle identité.
+intro: Nous mourons plusieurs fois au sein d'une même vie. La mort n'est pas la fin de la vie, mais celle d'un état. Les idées noires sont la manifestation du cri de notre âme qui nous pousse à renaître à une nouvelle identité.
 ---
 
 J’ai toujours été passionnée par la vie et ses cycles, de la naissance à la mort.
 
-En parlant de la mort justement, j’ai réalisé aujourd’hui que je n’avais jamais rencontré une seule personne qui ne m’ait jamais dit à un moment ou un autre qu’elle avait envie de mourir, d’en finir, ou plus violemment de « se foutre en l’air ». Aucune personne ne m’a jamais dit qu’elle s’était tenue éloignée toute sa vie de ce que l’on appelle les « pensées noires ». On pourrait se dire au premier abord que cela signifie que nous possédons tous en nous une tendance suicidaire, mais cela reviendrait à considérer la mort uniquement comme la fin de la vie. Pourtant, *nous mourrons tout au long de notre vie, et c’est grâce à ça que nous renaissons et nous réinventons en permanence*.
+En parlant de la mort justement, j’ai réalisé aujourd’hui que je n’avais jamais rencontré une seule personne qui ne m’ait jamais dit à un moment ou un autre qu’elle avait envie de mourir, d’en finir, ou plus violemment de « se foutre en l’air ». Aucune personne ne m’a jamais dit qu’elle s’était tenue éloignée toute sa vie de ce que l’on appelle les « pensées noires ». On pourrait se dire au premier abord que cela signifie que nous possédons tous en nous une tendance suicidaire, mais cela reviendrait à considérer la mort uniquement comme la fin de la vie. Pourtant, *nous mourons tout au long de notre vie, et c’est grâce à ça que nous renaissons et nous réinventons en permanence*.
 
 ##Si la mort n’est pas juste la fin de la vie, qu’est-elle ?
 
