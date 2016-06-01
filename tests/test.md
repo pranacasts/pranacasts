@@ -2,6 +2,7 @@ title: Accepter de ne pas être compris
 tags: [développement personnel, relations humaines]
 episodes: [lamour-passe-par-lacceptation-absolue-de-lautre]
 series: [cultivez-lhumilite-oubliez-la-modestie]
+articles: [accepter-de-ne-pas-etre-compris]
 intro: On perd beaucoup de temps à essayer de convaincre les autres, alors qu'accepter de ne pas être d'accord est souvent la clé d'une relation épanouie.
 ---
 Le problème le plus fréquent dans la communication est que l’on ne parvient pas à intégrer le fait que l’autre et nous-même **n’évoluons pas dans la même réalité**.
