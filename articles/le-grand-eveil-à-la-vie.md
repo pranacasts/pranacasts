@@ -1,5 +1,6 @@
 title: Le grand éveil à la vie
 tags: [spiritualité, écouter son âme]
+photo: 1466059278-pranacanal-banner-bg-2.jpg
 intro: Nous assistons à de nombreux changements sur notre planète, énergétiques j’entends. Le taux vibratoire général augmente, et cela a pour conséquence d’influencer directement nos propres énergies, car je rappelle ici que nous ne sommes qu’une partie du Tout qui nous entoure.
 ---
 Nous assistons à de nombreux changements sur notre planète, énergétiques j’entends. Le taux vibratoire général augmente, et cela a pour conséquence d’influencer directement nos propres énergies, car je rappelle ici que nous ne sommes qu’une partie du Tout qui nous entoure.
