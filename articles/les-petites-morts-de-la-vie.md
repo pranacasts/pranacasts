@@ -1,6 +1,7 @@
 title: Les petites morts de la vie
 tags: [aller mieux, affirmation de soi]
 series: [la-nuit-noire-de-lame]
+photo: 1466346697-YEc7WB6ASDydBTw6GDlF_antalya-beach-lulu.jpg
 intro: Nous mourons plusieurs fois au sein d'une même vie. La mort n'est pas la fin de la vie, mais celle d'un état. Les idées noires sont la manifestation du cri de notre âme qui nous pousse à renaître à une nouvelle identité.
 ---
 
