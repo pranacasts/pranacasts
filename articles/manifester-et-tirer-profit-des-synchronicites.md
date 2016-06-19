@@ -2,6 +2,7 @@ title: Manifester et tirer profit des synchronicités
 tags: [abondance, écouter son âme, aller mieux]
 series: [pratiquer-la-loi-dattraction-au-quotidien]
 episodes: [se-liberer-de-ses-emotions-avec-la-methode-hooponopono]
+photo: 1466346692-photo-1463595515259-d8ef281955b9.jpeg
 intro: Les synchronicités sont des coïncidences toujours heureuses qui se greffent à notre quotidien. Apprenez à les manifester et à en tirer le plein profit.
 ---
 #Un enchaînement parfait
