@@ -1,5 +1,6 @@
 title: Créez la vie que vous voulez vraiment
 tag: [développement personnel, écouter son âme]
+photo: 1466346546-photo-1427348693976-99e4aca06bb9.jpeg
 intro: La raison du mal-être de beaucoup de personnes provient du fait que nous sommes déconnectés de nos propres besoins.
 ---
 >J'aurais voulu avoir le courage de vivre la vie que je voulais vraiment, et pas celle que les autres attendaient de moi.
