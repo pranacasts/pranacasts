@@ -1,5 +1,6 @@
 title: Oser demander
 tags: [développement personnel, affirmation de soi]
+photo: 1466346687-photo-1454195117431-52fe45d5a350.jpeg
 intro: L'expression de nos désirs personnels est parfois très compliquée. Nous avons tendance à attendre certaines réactions de nos proches et à finalement nous en trouver frustrés puisque bien souvent nous n’osons pas demander.
 ---
 L'expression de nos désirs personnels est parfois très compliquée. Nous avons tendance à attendre certaines réactions de nos proches et à finalement nous en trouver frustrés puisque bien souvent nous n’osons pas demander.
