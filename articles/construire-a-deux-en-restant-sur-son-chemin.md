@@ -2,6 +2,7 @@ title: Construire à deux en restant sur son chemin
 tags: [amour, développement personnel, autonomie]
 episodes: [un-couple-deux-egos]
 series: [quitter-lattachement-pour-atteindre-lamour]
+photo: 1466346581-photo-1444807016527-23eae0a4b246.jpeg
 intro: La construction d'une histoire d'amour équilibrée dépend du respect de l'individualité de chacun des partenaires. 
 ---
 Une des principales difficultés de la vie de couple réside dans le fait d'avancer à deux tout en continuant à se construire en toute autonomie. Trop souvent on confond amour et fusion, amour et attachement, couple et abnégation de soi. Pourtant, **un et un ne font pas deux, mais trois** : vous, votre partenaire et le troisième élément qui est le couple que vous construisez.
