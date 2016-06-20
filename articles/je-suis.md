@@ -1,5 +1,6 @@
 title: Je suis
 tags: [développement personnel, aller mieux]
+photo: 1466346670-photo-1447858165805-528238ab4f61.jpeg
 intro: Qu'est-ce qui nous définit ? Notre profession, notre prénom, l'appartenance à une famille en particulier ou à un groupe social ? N'y a-t-il pas plus que ça ?
 ---
 Qu'est-ce qui nous définit ? Notre profession, notre prénom, l'appartenance à une famille en particulier ou à un groupe social ? N'y a-t-il pas plus que ça ?
