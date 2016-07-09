@@ -1,9 +1,8 @@
 title: Et si vos échecs étaient vos meilleurs amis ?
 tag: [développement personnel, aller mieux, écouter son âme]
 photo: 1468064276-article.jpeg
-intro:Peut-on vraiment parler d'échecs ou n'existe-t-il en fait que des expériences qui nous mènent à la réussite ?
+intro: Peut-on vraiment parler d'échecs ou n'existe-t-il en fait que des expériences qui nous mènent à la réussite ?
 ---
-
 Lors d’une conférence en ligne une participante m’a demandé si elle devait, d’après mes propos, considérer que tout ce qu’elle avait vécu jusqu’ici et même tout ce qui paraît négatif ne devait être envisagé que sous l’angle d’expérience et non d’échecs.
 
 C’est tout-à-fait exact.
