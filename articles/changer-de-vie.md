@@ -1,6 +1,7 @@
 title: Changer de vie
 tags: [écouter son âme, affirmation de soi, autonomie]
 photo: 1478452902-photo-1469135347280-e1d5fbd8d579.jpeg
+series: [projet-de-vie-et-projet-de-couple]
 intro: Votre chemin de vie n'appartient qu'à vous et vous n'avez besoin de l'autorisation de personne pour être heureux.
 ---
 Comme vous devez le savoir je vis depuis deux ans à Bali, en Indonésie. Ce choix n’a pas toujours été compris par mon entourage puisque j’avais en apparence tout pour être heureuse : le bon travail, le bon appartement, la vie bien rangée et engagée.
