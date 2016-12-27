@@ -2,7 +2,7 @@ title: Qu'est-ce que l'âme ?
 tags: [écouter son âme, spiritualité]
 photo: 1482792519-p-ppcccuziu-matthew-henry.jpg 
 series: [la-reincarnation, la-nuit-noire-de-lame]
-intro: L'âme, la partie céleste de votre être
+intro: Comprendre ce qu'est l'âme, c'est prendre conscience que l'on est bien plus qu'un être de chair. C'est communiquer avec l'aspect éternel de notre identité.
 ---
 #L'âme est notre identité céleste#
 
