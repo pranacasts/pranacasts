@@ -34,6 +34,8 @@ Votre emploi vous ennuie mais vous ne cherchez pas pour autant à vous en libér
 
 La nuit noire de l’âme est en fait le moyen qu’a votre âme, lorsque vous ne parvenez pas à écouter ses messages, de vous faire prendre conscience de sa propre souffrance face à votre non-évolution. **C’est son signal d’alarme**.
 
+[Découvrez et apprenez à communiquer avec votre âme](https://pranacanal.com/accompagnements/formations/communiquer-avec-mon-ame)
+
 >Souvent nous n’apprenons que dans la douleur et il n’y a en fait que dans cet état que nous acceptons enfin de nous poser les vraies questions.
 
 En fait, dans la nuit noire de l’âme tout ce qui ne sert pas à votre évolution, pour votre plus grand bien, va vous sembler de plus-en-plus fade voire insupportable. C’est comme si vous étiez appelé à vous libérer de ce que j’appellerais l’ego négatif, qui vous laisse enlisé dans certaines situations, pour embrasser votre être profond.
