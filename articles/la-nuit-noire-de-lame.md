@@ -50,11 +50,11 @@ Lorsque l’on s’est trouvé il n’y a plus de peurs d’être seul ou abando
 
 A mon sens tout notre mal-être provient de différents facteurs :
 
-- nous oublions de vivre l’instant présent, coincés dans les projections et l’attente ; 
+* nous oublions de vivre l’instant présent, coincés dans les projections et l’attente ; 
 
-- nous ne nous mettons pas au premier plan de notre vie, alors même que l’incarnation est un chemin purement solitaire. Vous êtes ici uniquement pour l’évolution de votre âme et non pour convenir à des standards ou à des personnes. 
+* nous ne nous mettons pas au premier plan de notre vie, alors même que l’incarnation est un chemin purement solitaire. Vous êtes ici uniquement pour l’évolution de votre âme et non pour convenir à des standards ou à des personnes. 
 
-- nous recherchons chez les autres ce qu’il est nécessaire de trouver en nous, par peur certainement d’affronter des douleurs que nous pensons insurmontables. 
+* nous recherchons chez les autres ce qu’il est nécessaire de trouver en nous, par peur certainement d’affronter des douleurs que nous pensons insurmontables. 
 
 Et c’est là que l’on tombe lentement dans la nuit noire de l’âme, **parce que l’on a peur**.
 
