@@ -4,11 +4,11 @@ photo: 1484381648-weskmsgzjdo-volkan-olmez.jpg
 series: [la-nuit-noire-de-lame]
 intro: La nuit noire de l'âme est une crise existentielle destinée à vous amener à accoucher de vous-même
 ---
-#Mourir à l'ancien pour naître à soi#
+##Mourir à l'ancien pour naître à soi
 
 >Notre existence est ponctuée de différents passages de vie au sein desquels nous sommes amenés à mourir à une identité pour renaître à une autre, plus proche de ce que nous sommes profondément, plus proche de notre être véritable. Souvent ces passages sont extrêmement douloureux, c’est ce que l’on appelle la nuit noire de l’âme.
 
-##Une crise existentielle##
+##Une crise existentielle
 
 Tout commence souvent par un manque d’entrain, un manque d’envie, un manque de vie. On ne se reconnaît plus dans le quotidien que l’on mène, on ne parvient que très rarement à ressentir la joie, le contentement, la satisfaction ou le bien-être. Petit-à-petit les choses deviennent plus pénibles, les tâches quotidiennes nous ennuient, parfois notre entourage aussi. Quoi que l’on possède, quelle que soit notre situation personnelle, on est mal, simplement mal.
 
@@ -20,7 +20,7 @@ Elle survient souvent lors de pics d’évolution, soit parce que vous entamez u
 
 Les symptômes les plus souvent rapportés sont une profonde introspection et de l’anxiété face à l’avenir sans parvenir à trouver des solutions. Les gens se sentent seuls et ne trouvent plus de sens à leur vie, se demandant ce qu’ils font ici. Tout paraît être un énorme non-sens.
 
-##Toujours une question d’ego##
+##Toujours une question d’ego
 
 Notre âme a besoin de l’ego car c’est lui qui induit l’illusion de séparation avec le tout. C’est grâce à cette illusion que nous pouvons nous individualiser, découvrir qui nous sommes et expérimenter toutes les émotions possibles. *L’ego est en fait notre détonateur émotionnel*.
 
@@ -38,7 +38,7 @@ La nuit noire de l’âme est en fait le moyen qu’a votre âme, lorsque vous n
 
 En fait, dans la nuit noire de l’âme tout ce qui ne sert pas à votre évolution, pour votre plus grand bien, va vous sembler de plus-en-plus fade voire insupportable. C’est comme si vous étiez appelé à vous libérer de ce que j’appellerais l’ego négatif, qui vous laisse enlisé dans certaines situations, pour embrasser votre être profond.
 
-##La nuit noire de l’âme pour accoucher de vous-même##
+##La nuit noire de l’âme pour accoucher de vous-même
 
 Lorsque j’ai demandé pour la première fois à mon âme à quoi servait de traverser une nuit noire, elle m’a montré l’image d’une femme à genoux et portant un manteau sombre. Cette femme s’est ensuite relevée tout en retirant son manteau. Une fois debout elle était totalement nue et avançait libre, allégée, la tête haute et avec une douce assurance.
 
@@ -48,17 +48,17 @@ Lorsque l’on s’est trouvé il n’y a plus de peurs d’être seul ou abando
 
 A mon sens tout notre mal-être provient de différents facteurs :
 
-* nous oublions de vivre l’instant présent, coincés dans les projections et l’attente ; 
+- nous oublions de vivre l’instant présent, coincés dans les projections et l’attente ; 
 
-* nous ne nous mettons pas au premier plan de notre vie, alors même que l’incarnation est un chemin purement solitaire. Vous êtes ici uniquement pour l’évolution de votre âme et non pour convenir à des standards ou à des personnes. 
+- nous ne nous mettons pas au premier plan de notre vie, alors même que l’incarnation est un chemin purement solitaire. Vous êtes ici uniquement pour l’évolution de votre âme et non pour convenir à des standards ou à des personnes. 
 
-* nous recherchons chez les autres ce qu’il est nécessaire de trouver en nous, par peur certainement d’affronter des douleurs que nous pensons insurmontables. 
+- nous recherchons chez les autres ce qu’il est nécessaire de trouver en nous, par peur certainement d’affronter des douleurs que nous pensons insurmontables. 
 
 Et c’est là que l’on tombe lentement dans la nuit noire de l’âme, **parce que l’on a peur**.
 
 Peur de changer les choses, de dire non, de rompre des schémas qui ne nous ressemblent pas et ne nous comblent pas, peur de nous affirmer dans ce que nous sommes.
 
-##Comment s’en sortir plus vite ?##
+##Comment s’en sortir plus vite ?
 
 Le premier pas est de **prendre conscience de notre propre responsabilité sur notre vie**, c’est-à-dire que *votre réalité actuelle n’est que le reflet de choix que vous avez fait et qui vous ont mené à la situation que vous vivez aujourd’hui*. Prendre conscience n’est pas se culpabiliser, c’est simplement acter qu’il est temps de faire les choses différemment.
 
