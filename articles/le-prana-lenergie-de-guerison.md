@@ -1,6 +1,6 @@
 title: Le Prana, l’Energie de guérison
 tags: [aller mieux]
-photo: 1479388351-photo-1442850473887-0fb77cd0b337.jpeg
+photo: 1492473849-robert-lukeman-150146.jpeg
 episodes: [apprenez-a-vous-ancrer-a-la-terre-et-ouvrir-vos-chakras]
 publish: 2017-01-30
 intro: Tout ce qui vit est mû par une seule et même énergie, le Prana.
