@@ -2,10 +2,8 @@ title: Attirer l'amour et réussir son nouveau départ amoureux
 tags: [relations humaines, amour, affirmation de soi]
 photo: 1492472893-julia-caesar-24806.jpeg
 series: [projet-de-vie-et-projet-de-couple, quitter-lattachement-pour-atteindre-lamour, parlons-damour]
-intro: Rencontrer un nouveau partenaire amoureux et construire une relation épanouissante est à la portée de tous, dès lors que nous avons compris que l'autre n'est que le reflet de ce que nous sommes.
+intro: Rencontrer un nouveau partenaire amoureux et construire une relation épanouissante est à la portée de tous, dès lors que nous avons compris que le rapport que l'on entretient avec soi conditionne celui que l'on entretient avec notre partenaire.
 ---
-> Le rapport que l'on entretient avec soi conditionne celui que l'on entretient avec notre partenaire amoureux.
-
 ## Nous attirons ce que nous ne voulons pas voir en nous ##
 
 *Qui êtes-vous ?* 
@@ -22,7 +20,7 @@ Alors vous vous direz peut-être, "je n'attire que des personnes qui me font du 
 
 Est-ce que vous vous montrez tel que vous êtes ou est-ce que vous vous moulez pour convenir aux autres ? Est-ce qu'il y a une cohérence entre ce que vous dites et ce que vous faites ou est-ce que vous êtes capable de renier vos valeurs à la moindre occasion ? Est-ce que vous êtes honnête et loyal envers les autres ou est-ce que vous mentez, dissimulez et donnez une fausse image de vous-même ?
 
-Parce que là encore, la manière dont vous agissez va conditionner le type de personnes qui se présenteront dans votre vie. Une attitude superficielle vous assure d'attirer à vous des personnes qui le seront tout autant, et qui vous donneront autant que vous leur donnez, c'est-à-dire un lien pauvre basé uniquement sur de la consommation instantanée, ce que vous pouvez prendre de l'autre à un moment T sans vous demander si c'est réellement cela qui vous nourrira en profondeur et vous permettra de grandir. Dans un lien entre deux personnes la gentillesse ne suffit pas. Ce qui est important c'est de se demander "est-ce que je me montre vraiment tel que je suis, avec mes angoisses, mes problèmes, mes projets et mes démons face à cette personne ?". Parce que c'est seulement là que l'intimité commence.
+Parce que là encore, la manière dont vous agissez va conditionner le type de personnes qui se présenteront dans votre vie. Une attitude superficielle vous assure d'attirer à vous des personnes qui le seront également, et qui vous donneront autant que vous leur donnez, c'est-à-dire un lien pauvre basé uniquement sur de la consommation instantanée, ce que vous pouvez prendre de l'autre à un moment T sans vous demander si c'est réellement cela qui vous nourrira en profondeur et vous permettra de grandir. Dans un lien entre deux personnes la gentillesse ne suffit pas. Ce qui est important c'est de se demander "est-ce que je me montre vraiment tel que je suis, avec mes angoisses, mes problèmes, mes projets et mes démons face à cette personne ?". Parce que c'est seulement là que l'intimité commence.
 
 ## Nous attirons les mirages de nos illusions ##
 
@@ -38,7 +36,7 @@ Cela fait beaucoup de questions à se poser, mais c'est fondamental. On peut se 
 
 Il est toujours possible de se bercer d'illusions et de tout faire pour ne pas affronter la réalité des choses, le fait est que tôt ou tard vous devrez faire face à ce que vous avez toujours fui, tout simplement parce que ce que vous construisez dans le but de combler certains manques ou blessures en vous finira par éclater.
 
-Cela est valable pour une relation sentimentale, un projet professionnel, un déménagement pour fuir quelque chose. Tout nous rattrape toujours tôt ou tard et la vie n'aura de cesse de nous présenter les mêmes situations pour nous donner une chance de nous positionner différemment.
+Cela est valable pour une relation sentimentale, un projet professionnel, un déménagement pour fuir quelque chose. Tout nous rattrape toujours tôt ou tard et la vie n'aura de cesse de nous présenter les mêmes situations pour nous donner une chance de nous positionner différemment. Même si ces situations nous font du mal ou nous mènent à la chute.
 
 Je peux vous donner l'exemple d'un homme que je connais très bien et qui, assez fraîchement séparé, a entamé une relation sentimentale avec une femme qui sortait elle-même d'une très longue relation qui s'était terminée deux jours auparavant. Bien évidemment il décrit cette relation de manière assez idyllique et, face à mon scepticisme pourtant bienveillant, m'a exprimé son énervement.
 
@@ -48,7 +46,7 @@ Il aurait pu rencontrer une femme affectivement disponible. Il a au contraire at
 
 Les personnes qui ont toujours besoin d'un autre pour les combler sont en fait **amoureuses de la sensation que leur procure le fait de ne pas se sentir seules et d'être comblées dans leurs failles narcissiques**. Pas de la personne. 
 
-Les failles narcissiques dont le parle ici sont le fait que, lorsque l'on entre dans une relation on part sur du neuf donc l'autre ne peut pas nous renvoyer des choses négatives puisqu'elle ne connaît pas nos ombres. Tout ceci est bon pour l'ego qui peut ainsi se redorer. Rien de malsain là-dedans, c'est humain.
+Les failles narcissiques dont je parle ici sont le fait que, lorsque l'on entre dans une relation on part sur du neuf donc l'autre ne peut pas nous renvoyer des choses négatives puisqu'elle ne connaît pas nos ombres. Tout ceci est bon pour l'ego qui peut ainsi se redorer. Rien de malsain là-dedans, c'est humain.
 
 Mais comment entrer en relation avec l'autre lorsque l'on essaie à tout prix de s'éviter soi-même ? Comment imaginer que l'autre puisse nous rendre heureux si l'on est pas heureux en soi ? Comment s'imaginer une seule seconde créer une intimité avec un autre lorsque l'on refuse de la vivre avec soi ? C'est tout bonnement impossible.
 
