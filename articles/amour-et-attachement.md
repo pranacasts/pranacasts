@@ -3,7 +3,7 @@ tags: [relations humaines, amour, autonomie]
 photo: 1494992336-everton-vila-140207.jpeg
 series: [projet-de-vie-et-projet-de-couple, quitter-lattachement-pour-atteindre-lamour]
 intro: La différence entre l'amour et l'attachement permet de prendre conscience de la qualité et de la profondeur du lien que vous créez avec l'autre.
-
+---
 # L'attachement existe dès la naissance #
 
 La notion d’attachement est présente dès nos premiers instants de vie. En effet, le nourrisson est un être voué à s’attacher à quelqu’un dans le but d’être comblé dans ses besoins fondamentaux (d’être rassuré, câliné, nourri, changé…). Si ses besoins sont satisfaits, le bébé pourra construire petit-à-petit son sentiment de sécurité, sa confiance en soi. Autrement dit, le bébé a besoin de quelqu'un d'autre pour se construire.
