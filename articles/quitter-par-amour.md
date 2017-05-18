@@ -8,7 +8,7 @@ Bien que cela s’apparente à une contradiction, il existe des cas dans lesquel
 
 Cela se manifeste à mon sens dans deux configurations principales : le quitter **par amour pour lui** ou **par amour pour nous**.
 
-##Je te quitte pour te permettre d’être heureux
+## Je te quitte pour te permettre d’être heureux
 
 Lorsque l’on quitte une personne dans son propre intérêt à elle, c’est soit que l’on a pris conscience qu’elle souffre d’une manière ou d’une autre au sein de la relation amoureuse, soit que cette relation l’empêche de réaliser des objectifs personnels qui sont pourtant importants pour son évolution sur du long terme.
 
@@ -20,7 +20,7 @@ Dans le second cas je pense à la situation où une personne que vous aimez se r
 
 Dans ces deux cas, la rupture est en fait un geste altruiste et la preuve d’un amour profond : *je t’aime de manière si inconditionnelle que je suis capable aujourd’hui de mettre un terme à notre relation afin que tu puisses t’épanouir pleinement et vivre les nouvelles étapes qui s’offrent à toi. Je suis prêt(e) à me confronter à la douleur de ton absence car c’est ce qui est le mieux pour toi mais aussi pour moi, car je ne veux pas entretenir une relation déséquilibrée ou vivre avec le sentiment de t’avoir empêché de faire des choses dont tu avais vraiment envie, d’être à l’écoute de tes propres désirs profonds*.
 
-##Je te quitte pour mon propre bien-être
+## Je te quitte pour mon propre bien-être
 
 Aimer une personne ne signifie pas forcément être heureux avec elle. Il y a parfois des configurations qui font que l’on ne parvient plus à se sentir bien avec notre partenaire et que les moments joyeux laissent de plus-en-plus de place à des confrontations, des crises ou un profond désarroi voire de l’ennui. Lorsque l’on a tout essayé, la seule solution qui reste est parfois de se quitter.
 
@@ -30,7 +30,7 @@ Dans un tel cas, on quitte l’autre par respect pour soi-même, parce que l’o
 
 Beaucoup de couples mettent des années à prendre la décision fatidique, soit par peur de se retrouver seul (même si le quotidien à deux n’est pas toujours facile, on a pris des habitudes avec l’autre qu’il va falloir laisser derrière soi), de se confronter à sa peine (car la plupart du temps celui qui quitte souffre autant que celui qui est quitté), soit par rapport au quotidien et à l’image (la vie familiale, la maison à vendre, le manque de moyens financiers pour l’un des deux qui ne lui permettra pas de rebondir dans de bonnes conditions..).
 
-##Mais pourquoi passe-t-on de l’amour à la destruction d’une histoire ?
+## Mais pourquoi passe-t-on de l’amour à la destruction d’une histoire ?
 
 Nous ne rencontrons jamais les gens par hasard. Chaque personne est mise sur notre chemin afin de nous permettre d’évoluer d’une manière ou d’une autre.
 
