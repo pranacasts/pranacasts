@@ -5,7 +5,7 @@ episodes: [loi-dattraction-des-affirmations-qui-fonctionnent]
 publish: 2017-01-10
 intro: Adorée par certains, critiquée par d'autres, la voyance est un outil précieux de développement personnel si elle est bien utilisée.
 ---
-#La voyance au fil du temps#
+## La voyance au fil du temps ##
 
 >La voyance est un art ancestral qui n'a cessé d'évoluer. Il s'agit de la capacité de prédire l’avenir grâce à des perceptions extra-sensorielles ou des supports comme le pendule ou les cartes. C’est un art qui est pratiqué depuis plusieurs siècles et qui s’exprimait de façon différente selon les civilisations.
 
@@ -21,7 +21,7 @@ Il y a aussi les astrologues qui arrivent à faire ressortir, selon une connaiss
 
 Dans certains pays comme l’Afrique ou encore l’Indonésie les voyances sont effectuées par des personnes qui entrent en transe à l’aide de prières ou de décoctions de feuilles et vont chercher dans le monde des esprits les réponses aux questions qui leur sont posées.
 
-##A quoi sert la voyance ?##
+## A quoi sert la voyance ? ##
 
 Même si elle est aujourd'hui bien souvent pointée du doigt, la voyance est pour moi un art merveilleux.
 
@@ -31,7 +31,7 @@ J'ai une approche responsable de la voyance, c'est-à-dire qu'à mon sens elle n
 
 Je peux vous donner un exemple très simple. Admettons que vous alliez consulter une voyante pour une problématique d'ordre professionnel et qu'elle vous prédise un changement de poste dans l'année à venir. Si de votre côté vous ne faites pas les démarches nécessaires sa prédiction ne se réalisera pas. Vous pouvez être tenté de penser que si une prédiction est inscrite c'est qu'elle va forcément se réaliser, mais en fait il s'agit de la prédiction **ayant le plus de chances de se réaliser** au moment où vous consultez. C'est la probabilité la plus grande selon là où vous en êtes de votre chemin de vie.
 
-##Peut-on croire en la voyance ?##
+## Peut-on croire en la voyance ? ##
 
 Ma position est qu'il ne faut pas nécessairement croire en la voyance mais plutôt accueillir les prédictions qui nous sont faites comme des conseils que l'on est libre de suivre ou non, et comme des lumières dont on constatera le bien-fondé ou non par la suite. 
 
@@ -39,7 +39,7 @@ Dans l'exercice de mon activité je me refuse à donner une consultation de voya
 
 Pourquoi ne faut-il pas croire à 100 % à une prédiction ? Tout simplement parce que d'une part la voyance n'est pas et n'a jamais été une science exacte, et d'autre part parce que seul l'avenir vous montrera si la prédiction était juste ou non en fonction de la manière dont les évènements se dérouleront dans votre vie.
 
-##Pourquoi certaines prédictions ne se réalisent-elles pas ?##
+## Pourquoi certaines prédictions ne se réalisent-elles pas ? ##
 
 Il y a à mon sens plusieurs facteurs :
 
@@ -51,14 +51,14 @@ Il y a à mon sens plusieurs facteurs :
 
 * La question posée : il est parfois difficile de répondre à certaines questions qui sont trop précises. Par exemple si vous recherchez un emploi le voyant peut vous dire qu'il voit bien la signature de contrat. Mais si vous essayez de savoir si ce sera dans l'entreprise A ou dans l'entreprise B, ce peut être plus compliqué d'avoir une réponse franche. De la même façon les questions en lien avec la localisation ne permettent que rarement d'obtenir une réponse fiable. On peut sentir un déménagement, un climat, mais rarement le nom d'une ville ou d'un pays.  
 
-##Sous combien de temps se réalisent les prédictions ?##
+## Sous combien de temps se réalisent les prédictions ? ##
 
 Il est important d’aborder la notion de temporalité en voyance. En effet, nous voulons tous savoir à quel moment les évènements annoncés vont se produire. Le consultant doit pourtant garder en tête qu’il n’existe pas d’espace-temps au niveau spirituel et  qu’ainsi un évènement prédit semblant immédiat peut se produire quelques semaines ou quelques mois plus tard.
 
 Nous avons également nous-même une influence directe ou indirecte sur le délai de réalisation de certaines prédictions. Par exemple, une personne à qui on annonce la signature imminente d’un contrat de travail et qui arrête d’en chercher en se disant que c’est gagné d’avance sera forcée de constater que ledit contrat tardera grandement à arriver.
 D’une autre manière, certaines personnes font une telle fixette sur une prédiction qu’elles bloquent les énergies, retardant ainsi sa réalisation. Beaucoup de personnes vont par exemple être en quête d'un partenaire pendant des mois et puis un jour, souvent par ras-le-bol, vont laisser cette attente de côté pour se focaliser sur autre chose. C'est souvent à ce moment-là qu'elles vont rencontrer quelqu'un car elles sont alors "libres" au niveau des énergies pour laisser la place à cette personne.
 
-##Comment tirer le meilleur d'une consultation de voyance ?##
+## Comment tirer le meilleur d'une consultation de voyance ? ##
 
 Je conseille toujours **de noter ou d'enregistrer** les consultations de voyance, tout simplement pour être sûr de ne rien oublier et de pouvoir dans le temps vérifier l'exactitude des prédictions.
 
