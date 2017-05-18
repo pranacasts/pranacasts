@@ -5,7 +5,7 @@ series: [votre-spiritualite-au-quotidien]
 episodes: [se-liberer-de-ses-emotions-avec-la-methode-hooponopono]
 intro: Apprenez à observer vos émotions afin de vous libérer du poids de votre ego et d'entamer un chemin de guérison intérieure.
 ---
-# L'ego, outil de protection et d'autonomisation #
+## L'ego, outil de protection et d'autonomisation
 
 >L'ego est l'outil qui a été donné à l'âme afin qu'elle puisse faire l'expérience de la séparation. C'est uniquement grâce à l'ego qu'il lui devient possible de se découvrir dans son individualité et de se libérer des blessures qui l'empêchent d'évoluer.
 
