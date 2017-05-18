@@ -5,7 +5,7 @@ series: [atteindre-et-cultiver-le-bonheur]
 publish: 2017-01-01
 intro: Et si pour cette nouvelle année vous décidiez de tourner la page et de laisser derrière vous ce qui ne vous rend pas heureux ?
 ---
-#La décision de passer à autre chose#
+## La décision de passer à autre chose ##
 
 >Il fut un temps où l’on s’accrochait, où l’on essayait de comprendre, de décortiquer. Il fut un temps où parfois on passait des heures à se remettre en question et à tenter de faire de nouveaux compromis ou de prendre sur soi. Et puis le temps arrive où finalement on ne souhaite plus tout ça, et on décide de simplement tourner la page.
 
@@ -27,7 +27,7 @@ Bien que ce soit un chemin assez long et difficile puisqu’il nécessite une co
 
 Arrêter d’essayer de comprendre le pourquoi de certains comportements. Tourner la page et rompre des liens de manière beaucoup plus radicale que par le passé, et ce sans états d’âme particuliers, tout simplement parce que **ce qui part n’a plus la nécessité de rester dans notre vie, ce qui part n’est plus utile à l’évolution de notre âme**, et seul l’ego a parfois du mal à l’accepter.
 
-##2016 fut l'année du grand ménage##
+## 2016 fut l'année du grand ménage ##
 
 Autour de moi en 2016 j’ai vu beaucoup de ruptures, de déceptions et de trahisons. J’ai vu beaucoup de larmes, de souffrances mais aussi tellement de lueurs d’espoirs. Et j’ai moi-même été mise face à certaines situations m’ayant obligée à me demander : qu’est-ce que je fais de ce lien ?
 
@@ -39,7 +39,7 @@ On se sent souvent obligé. Obligé de supporter des personnes qui nous pompent 
 
 Tout ce que nous maintenons dans nos vies alors même que cela ne nous est pas profitable est lié à une peur. On s’accroche à une relation sentimentale qui ne nous rend pas heureux par peur d’être seul. A un emploi qui nous ennuie profondément par peur du manque ou de l’inconnu. On garde un ami qui nous manque de respect ou qui ne nous porte pas la même considération que celle que nous lui portons parce que notre blessure de rejet est activée et que l’on recherche de manière consciente ou non son regard. Mais qu’en est-il du respect de soi ?
 
-##2017 sera l'année des nouvelles bases##
+## 2017 sera l'année des nouvelles bases ##
 
 L’année 2017 va être vibratoirement encore plus puissante que celle qui s’en va. Nous allons être amenés de manière encore plus pressante, à nous demander ce qui est vraiment important pour nous, ce que nous voulons voir fleurir dans notre quotidien. Et nous aurons la possibilité de manifester tout cela, si seulement nous acceptons de nous regarder, de nous considérer et de nous aimer.
 
