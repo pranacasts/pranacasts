@@ -17,13 +17,13 @@ Bien que nous évoluions tous au sein de réalités différentes (ce qui est vra
 
 A partir du moment où nous décidons de ne plus nous contenter d’une attitude contemplative face à notre vie, nous devenons capable d’actionner les mécanismes internes permettant de réaliser nos projets. 
 
-##Tout vient de l’intérieur
+## Tout vient de l’intérieur
 
 C’est notre décision qui nous poussera à nous battre pour que demain ne ressemble pas à ce que nous vivons ou avons vécu. C’est cette même décision qui nous permettra de ne pas baisser les bras face aux difficultés, nous rappelant notre promesse faite à nous-même de prendre en main notre existence. La décision, c’est aussi ce qui réveille la partie la plus forte que nous abritons, celle qui n’a plus peur d’affronter ses démons, de prendre la pleine responsabilité sur les évènements qui viennent à elle, de ne plus se contenter de ce qui lui est inconfortable.
 
 Sur un aspect plus spirituel, la décision est ce qui permet d’attirer à soi les circonstances favorables, les bonnes personnes, les synchronicités, tout simplement parce que notre esprit est totalement dirigé vers ce but à atteindre, que nous ne permettons pas qu’une voie contraire vienne entraver nos projets et qu’ainsi, la pensée étant créatrice, bien souvent les évènements s’enchaînent de la manière qui nous est la plus profitable.
 
-##*Alors comment décider ?*
+## Alors comment décider ?
 
 Je ne pense pas qu’il existe une méthode infaillible pour aider une personne à prendre une décision, tout simplement parce que *si cette dernière ne vient pas de la profondeur de son être, elle ne s’y tiendra pas*. Vous pouvez par exemple lui offrir la formation la plus coûteuse pour lui permettre de rentabiliser son activité, si elle n’a pas décidé de réussir elle n’ira pas au bout ou n’appliquera pas les conseils qui lui seront prodigués.
 
