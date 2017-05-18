@@ -5,7 +5,7 @@ episodes: [se-liberer-de-ses-emotions-avec-la-methode-hooponopono]
 photo: 1466346692-photo-1463595515259-d8ef281955b9.jpeg
 intro: Les synchronicités sont des coïncidences toujours heureuses qui se greffent à notre quotidien. Apprenez à les manifester et à en tirer le plein profit.
 ---
-# Un enchaînement parfait
+## Un enchaînement parfait
 
 Il y a quelques jours lors d’une méditation de gratitude mon esprit s’est fixé sur le fait que l’on avait toujours mis sur ma route des personnes ou des concours de circonstances qui m’avaient permise de trouver des issues à des situations d’un premier abord inextricables.
 
