@@ -5,7 +5,7 @@ episodes: [se-liberer-de-ses-emotions-avec-la-methode-hooponopono]
 photo: 1466346692-photo-1463595515259-d8ef281955b9.jpeg
 intro: Les synchronicités sont des coïncidences toujours heureuses qui se greffent à notre quotidien. Apprenez à les manifester et à en tirer le plein profit.
 ---
-#Un enchaînement parfait
+# Un enchaînement parfait
 
 Il y a quelques jours lors d’une méditation de gratitude mon esprit s’est fixé sur le fait que l’on avait toujours mis sur ma route des personnes ou des concours de circonstances qui m’avaient permise de trouver des issues à des situations d’un premier abord inextricables.
 
@@ -17,7 +17,7 @@ Tout de suite après j’ai rencontré une guérisseuse et médium qui a été m
 
 Tous ces évènements c’est ce que l’on appelle les synchronicités, ces choses ou ces personnes qui arrivent à vous sans trop que vous ne sachiez pourquoi et qui vous apportent des prises de conscience et l’opportunité de donner un autre souffle à votre vie.
 
-##Peut-on provoquer les synchronicités ?
+## Peut-on provoquer les synchronicités ?
 
 Je ne dirais pas qu’une synchronicité se provoque, mais plutôt que **notre attitude va lui permettre de se manifester**. Et cette attitude, c’est l’abandon.
 
@@ -27,7 +27,7 @@ Ces évènements qui paraissent être de purs hasards, qui sont souvent inespér
 
 Ce n’est pas forcément la situation que l’on abandonne (par exemple pour une affaire administrative on ne va surtout pas arrêter de faire les démarches nécessaires pour la régler), mais plutôt la frustration qui y est attachée. En intégrant le fait que ce qu’il se passera sera forcément juste pour nous en finalité, on arrête de créer un noeud énergétique qui ne fait que nous maintenir un peu plus longtemps dans la stagnation.
 
-##Pourquoi est-ce que s’abandonner permet de débloquer les situations ?
+## Pourquoi est-ce que s’abandonner permet de débloquer les situations ?
 
 Le principe est en fait le même que pour la loi d’attraction ou la méthode Ho’Oponopono, qui nécessitent que l’on se détache du résultat attendu.  En fait, tout fonctionnant autour de nous comme un aimant attirant à lui les énergies de même vibration, lorsque l’on s’attache à penser à une situation qui provoque en nous de la frustration, c’est comme si l’on attirait à nous encore davantage de frustration, donc il est peu probable qu’une solution soit trouvée dans la rapidité.
 
@@ -47,7 +47,7 @@ Lorsque ça s’est terminé j’ai éprouvé un sentiment d’échec, mais peu 
 
 **Je pense que parfois il est bon de savoir avancer à l’aveugle**, non pas en le vivant comme une insécurité mais en se laissant porter et en disant à l’Univers ou à Dieu si on y croit « ok, je remets tout entre tes mains, je ne sais pas encore où tout ça va me mener mais toi tu le sais et ce sera forcément pour mon plus grand bien en finalité ».
 
-##Comment tirer le plein profit des synchronicités ?
+## Comment tirer le plein profit des synchronicités ?
 
 En passant à l’action ! Lorsque la synchronicité se présente à vous, il est temps d’agir. Cela ne signifie pas vous remettre dans l’attente ou tenter d’anticiper la suite (car vous pourriez bloquer à nouveau la situation) mais saisir les opportunités qui se présentent à vous, prendre des contacts, réaliser les actions nécessaires, en laissant toujours à la vie l’opportunité de vous surprendre et parfois même de vous amener vers une voie que vous n’aviez même pas envisagée.
 
