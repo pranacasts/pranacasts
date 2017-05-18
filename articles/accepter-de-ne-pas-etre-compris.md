@@ -34,7 +34,7 @@ Ainsi, et quelle que soit la virulence avec laquelle vous tenterez de la convain
 
 Cela ne signifie pas qu’elle a tort ou que vous avez raison, ni que l’un d’entre vous est plus bête que l’autre, mais que *vous avez tous les deux raison par rapport à vos réalités respectives*.
 
-###Alors que faire ?
+### Alors que faire ?
 
 La seule solution est l’acceptation. Je ne parle pas d’accepter et prendre pour vôtre le point de vue de votre interlocuteur, mais d’accepter le fait que vous ne tomberez pas d’accord sur ce point.
 
