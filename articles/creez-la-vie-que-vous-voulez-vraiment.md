@@ -7,7 +7,7 @@ intro: La raison du mal-être de beaucoup de personnes provient du fait que nous
 
 Cette phrase constitue le premier regret exprimé par les personnes âgées quand elle font le bilan de leur vie, toutes catégories sociales confondues. 
 
-##Alors, qu'est-ce que cela signifie ?
+## Alors, qu'est-ce que cela signifie ?
 
 Nous nous construisons selon deux principales données, la première étant le schéma communiqué par nos parents, la seconde étant celui vers lequel la société dans laquelle on vit nous pousse. 
 
@@ -15,7 +15,7 @@ Si l'on prend pour exemple le modèle occidental, on attend de nous que nous fas
 
 Cela peut paraître stéréotypé mais pourtant, lorsqu'une personne arrive à la trentaine sans avoir de situation professionnelle stable elle est de fait considérée comme étant "paumée". De même, si un homme n'est pas marié à 40 ans il sera considéré comme étant un "vieux garçon". Si l'on est en couple depuis un moment, l'entourage attend de nous que nous fassions un enfant. Et quand il est là, les gens nous demandent "à quand le petit frère ou la petite soeur ?" et puis finalement "à quand le petit troisième ?". En bref, beaucoup de personnes semblent considérer que les choses doivent se dérouler comme dans un livre dont il faut respecter l'ordre des chapitres.
 
-##Quelles sont les conséquences à ça ?
+## Quelles sont les conséquences à ça ?
 
 Dans un tel schéma la liberté d'être et le respect de l'individualité de tout-un-chacun sont des bafoués. Beaucoup de personnes finissent par avancer sur des voies qui ne leur ressemblent pas, tout simplement pour ne pas supporter le regard désapprobateur de l'entourage ou ne pas être marginalisées. Certains font des études alors qu'ils auraient préféré voyager, prendre le temps d'être attentifs à leurs besoins, d'apprendre à se connaître davantage.
 
