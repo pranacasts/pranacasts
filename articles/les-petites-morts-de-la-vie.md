@@ -9,13 +9,13 @@ J’ai toujours été passionnée par la vie et ses cycles, de la naissance à l
 
 En parlant de la mort justement, j’ai réalisé aujourd’hui que je n’avais jamais rencontré une seule personne qui ne m’ait jamais dit à un moment ou un autre qu’elle avait envie de mourir, d’en finir, ou plus violemment de « se foutre en l’air ». Aucune personne ne m’a jamais dit qu’elle s’était tenue éloignée toute sa vie de ce que l’on appelle les « pensées noires ». On pourrait se dire au premier abord que cela signifie que nous possédons tous en nous une tendance suicidaire, mais cela reviendrait à considérer la mort uniquement comme la fin de la vie. Pourtant, *nous mourons tout au long de notre vie, et c’est grâce à ça que nous renaissons et nous réinventons en permanence*.
 
-##Si la mort n’est pas juste la fin de la vie, qu’est-elle ?
+## Si la mort n’est pas juste la fin de la vie, qu’est-elle ?
 
 Je considère la mort comme la fin d’un cycle. Et en ce sens elle est porteuse de vie puisqu’une chose qui se termine (qui meurt) laisse place à un nouveau cycle (une naissance). 
 
 Il n’y a qu’à regarder l’hiver qui laisse place à l’automne, le réveil de la nature. Et il n’y a qu’à regarder notre propre existence : en s’incarnant notre âme meurt d’une certaine façon aux autres plans de conscience pour naître à la vie terrestre. Et lorsque l’Etre meurt à la vie terrestre l’âme renaît de nouveau à ces autres plans de conscience.
 
-##A quelles autres occasions mourons-nous dans la vie ?
+## A quelles autres occasions mourons-nous dans la vie ?
 
 Nous traversons diverses périodes de transition tout au long de notre existence, que j’appelle des **passages d’âme**. Il s’agit de périodes lors desquelles *nous sommes amenés à mourir à une identité pour renaître à une autre*. 
 
@@ -23,13 +23,13 @@ Certains de ces passages se passent très naturellement, comme par exemple celui
 
 Tous ces passages sont empreints de doutes, parfois de souffrance, parfois encore de révolte ou de rébellion, et c’est justement parce que sans nous en rendre compte nous mourons, en laissant partir un fragment de notre identité, pour renaître et laisser s’installer un autre fragment qui nous accompagnera désormais.
 
-##Pourquoi cela se passe souvent dans le doute ou la douleur ?
+## Pourquoi cela se passe souvent dans le doute ou la douleur ?
 
 Parce que nous sommes contraints d’ajuster notre personnalité. C’est une **perte de repères qui nécessite une nouvelle définition de soi**, un nouvel apprentissage et l’apprivoisement d’une nouvelle facette de nous-même. Hier on était seul et aujourd’hui on est parent, avec toutes les responsabilités que cela implique. Donc malgré le bonheur, les questionnements sont là. Comment rester moi tout en étant sa mère ou son père ? 
 
 Hier on était enfant, et aujourd’hui on est jeune adulte. Comment faire face à ce changement d’état ? Et comment se préparer à toutes les responsabilités inhérentes à la vie d’adulte, qui marquent le fait que l’on ne pourra pas toujours compter sur quelqu’un pour faire les choses à notre place. Toutes ces périodes-là sont des petites morts.
 
-##Donc quand je dis que j’ai envie de mourir, qu’est-ce que ça signifie ?
+## Donc quand je dis que j’ai envie de mourir, qu’est-ce que ça signifie ?
 
 **Que vous souhaitez mourir à votre identité actuelle**. Que vous remarquez que votre vie, dans ce qu’elle est aujourd’hui, ne vous convient pas. Que votre identité ne résonne pas avec ce que vous vivez dans votre quotidien. Alors oui vous avez envie de mourir, mais pas à la vie, juste à un modèle de vie qui n’est plus vous, qui ne vous ressemble plus. *Et c'est sain car c'est annonciateur de changement*.
 
