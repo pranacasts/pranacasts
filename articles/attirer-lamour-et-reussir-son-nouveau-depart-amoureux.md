@@ -78,4 +78,4 @@ Si vous dites de l'autre qu'il vous apaise, commencez par vous apaiser vous-mêm
 
 Et si vous vous êtes reconnu dans certains aspects abordés dans cet article, demandez-vous simplement comment vous pouvez faire différemment. C'est par la prise de conscience que l'on change vraiment, et qu'on apprend à s'aimer mieux.
 
-Ainsi, vous pourrez attirer à vous et vivre ce que l'on appelle l'amour inconditionnel et vous ne direz plus "aime-moi", mais "**aimons-nous si l'âme nous en dit**". 
+Ainsi, vous pourrez attirer à vous et vivre ce que l'on appelle l'amour inconditionnel et vous ne direz plus "aime-moi", mais "**aimons-nous si l'âme nous en dit**".
