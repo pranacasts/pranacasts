@@ -6,7 +6,7 @@ series: [pratiquer-la-loi-dattraction-au-quotidien]
 publish: 2017-01-23
 intro: La loi d'attraction est un principe simple et accessible à tous permettant de façonner sa réalité en fonction de ses désirs. Reprendre le pouvoir créateur sur sa vie permet d'ouvrir la porte à l'abondance.
 ---
-#Abondance et loi d'attraction#
+## Abondance et loi d'attraction ##
 
 L’abondance est un droit de naissance. Tout comme la nature est abondante et luxuriante, nous avons le droit si ce n’est le devoir, pour entretenir l’énergie d’abondance de la Terre, de la manifester au sein de notre propre vie.
 
@@ -14,7 +14,7 @@ Lorsque l’on parle d’abondance cela ne se limite pas à l’argent, même s�
 
 Cette abondance nous avons la capacité de la manifester à souhait dès lors que l’on a conscience d’une part du pouvoir de création que nous avons sur notre vie, et d’autre part de la manière de l’attirer par la loi d’attraction.
 
-##Sur quoi repose la loi d'attraction ?##
+## Sur quoi repose la loi d'attraction ?##
 
 La loi d’attraction est un principe selon lequel **tout ce que nous attirons à nous, que ce soit de positif ou de négatif, n’est en fait que la manifestation de nos pensées**. Selon cette loi nous sommes donc responsables de ce qu’est notre vie et des évènements qui y surviennent.
 
@@ -30,19 +30,19 @@ C’est donc encore une fois un mécanisme qui rejette toute notion de victime e
 
 Comprenez bien qu’il n’y a rien de magique dans la loi d’attraction, **c’est un moyen d’utiliser l’énergie qui est à la disposition de tous afin de vous permettre de vivre une vie sereine**. Même si nous sommes pour la plupart élevés dans la croyance du contraire, il est temps de réaliser que la difficulté n’est pas le chemin de base pour l’Etre humain. Il y a toujours des moments plus-ou-moins difficiles dans une vie, mais en faisant appel à des mécanismes simples comme la loi d’attraction, on réalise que les voies les plus faciles sont aussi à notre portée.
 
-##Peut-on réellement changer sa vie en pratiquant la loi d’attraction ?##
+## Peut-on réellement changer sa vie en pratiquant la loi d’attraction ? ##
 
 Oui parfaitement. Je ne suis pas en train de vous dire qu’il vous suffit de demander les choses et qu’elles arriveront toutes seules, notre positionnement et nos actions sont d’une importance primordiale lorsque l’on décide d’obtenir quelque chose. 
 
 Par exemple, à moins que vous ne gagniez au loto, il n’y a que très peu de chances que vous parveniez à gagner beaucoup d’argent sans travailler. La loi d’attraction vous aidera par contre à gagner beaucoup plus d’argent beaucoup plus rapidement et à amener à vous les personnes qui vous permettront de réussir plus facilement. **Vos actions seront en fait le levier pour atteindre votre objectif, et la loi d’attraction sera votre propulseur**.
 
-##Dans quels domaines utiliser la loi d’attraction ?##
+## Dans quels domaines utiliser la loi d’attraction ? ##
 
 Dans tous, dès lors que vous ne cherchez ni à nuire ni à bafouer le libre-arbitre d’autrui.
 
 La loi d’attraction peut vous aider à trouver un nouvel emploi ou à faire fructifier votr activité. Vous pouvez l’utiliser pour trouver le bien immobilier de vos rêves ou une voiture qui correspondra parfaitement à vos besoins. Elle est également utile pour attirer à vous des personnes qui pourront vous aider à avancer dans vos projets, ou même de nouveaux clients si vous êtes à votre compte. En gros *elle n’a de limites que celles que vous vous fixez*.
 
-##Pourquoi certaines personnes n’obtiennent jamais ce qu’elles souhaitent ?##
+## Pourquoi certaines personnes n’obtiennent jamais ce qu’elles souhaitent ? ##
 
 Comme je l’ai déjà abordé, la pratique de la loi d’attraction dépend de divers facteurs, les plus importants étant la pensée et l’émotion.
 
@@ -54,7 +54,7 @@ Ne connaissez-vous pas de personnes passant leur temps à dire que la vie est di
 
 **Elle n'est donc ni négative, ni positive, elle répond à ce qu'on lui envoie**.
 
-##Par quoi commencer ?##
+## Par quoi commencer ? ##
 
 Je vous invite à découvrir les autres ressources que je mets à votre disposition sur la loi d’attraction et que vous trouverez en recommandation en-bas de cet article. Mais je dirais que le premier axe sur lequel vous devez travailler est votre droit à l’abondance, votre droit à vivre une vie plus facile.
 
