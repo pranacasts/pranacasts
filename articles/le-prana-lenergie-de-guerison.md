@@ -5,7 +5,7 @@ episodes: [apprenez-a-vous-ancrer-a-la-terre-et-ouvrir-vos-chakras]
 publish: 2017-01-30
 intro: Tout ce qui vit est mû par une seule et même énergie, le Prana.
 ---
-#Prana, Prana-thérapie et hygiène énergétique#
+# Prana, Prana-thérapie et hygiène énergétique #
 
 Le mot Prana, qui nous vient du sanskrit, signifie littéralement le mouvement « Pra » du souffle « Na », ce dernier devant être envisagé comme un souffle de vie. Nous pouvons donc dire qu’il s’agit d’une *énergie ou une force en constant mouvement*.
 
@@ -29,7 +29,7 @@ Douleurs, fatigue, angoisses et autres troubles trouvent leur source dans un dé
 
 Voici quelques conseils pour vous assurer d'une bonne hygiène énergétique.
 
-##Le Prana et l’alimentation##
+## Le Prana et l’alimentation ##
 
 Comme dit précédemment ce que nous ingérons est vecteur d’énergie, cela signifie que bien se nourrir est une nécessité car s’alimenter avec des aliments de mauvaise qualité ne fera que détruire petit-à-petit votre organisme par l’apport d’énergies basses ou nocives. 
 
@@ -47,7 +47,7 @@ Je vous conseille donc d'écouter vous aussi votre corps et ses besoins, mais je
 
 Suivre ces quelques conseils alimentaires permet de tirer pleinement profit du Prana que contiennent les aliments et contribue ainsi à garder une bonne forme. 
 
-##Le Prana et l'ancrage##
+## Le Prana et l'ancrage ##
 
 L'ancrage, par cette connexion consciente à l'énergie de la Terre, fait partie des techniques permettant un renouvellement énergétique et donc une bonne absorption du Prana.
 
