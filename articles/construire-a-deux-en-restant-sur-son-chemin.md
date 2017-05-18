@@ -30,7 +30,7 @@ Et il y a encore beaucoup d'exemples comme ça.
 
 C'est comme ça que l'on déchante puisque l'on attendait de l'autre, consciemment ou non, qu'il répare nos fêlures alors qu'au contraire il vient les titiller de plein fouet.
 
-##Alors comment rester indépendant tout en construisant une histoire ?
+## Alors comment rester indépendant tout en construisant une histoire ?
 
 En voyant l'autre tel qu'il est vraiment, c'est-à-dire une personne qui peut nous permettre d'avancer un peu plus sur la voie de notre propre autonomie.
 
