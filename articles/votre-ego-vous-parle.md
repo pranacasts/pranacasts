@@ -5,7 +5,7 @@ series: [votre-spiritualite-au-quotidien]
 episodes: [se-liberer-de-ses-emotions-avec-la-methode-hooponopono]
 intro: Apprenez à observer vos émotions afin de vous libérer du poids de votre ego et d'entamer un chemin de guérison intérieure.
 ---
-## L'ego, outil de protection et d'autonomisation
+## L'ego, outil de protection et d'autonomisation ##
 
 >L'ego est l'outil qui a été donné à l'âme afin qu'elle puisse faire l'expérience de la séparation. C'est uniquement grâce à l'ego qu'il lui devient possible de se découvrir dans son individualité et de se libérer des blessures qui l'empêchent d'évoluer.
 
@@ -59,4 +59,3 @@ A la question « comment je me sens », vous pourriez répondre : je me sens p
 Ces dernières réponses sont donc le fruit de votre ego, et dans ce cas c’est à vous d’aller par exemple explorer ce que représente pour vous la trahison, qu’est-ce que vous avez vécu dans votre passé qui a déjà révélé ce sentiment et d'où est-ce que cette blessure peut provenir (recherchez par exemple ceci dans votre histoire familiale).
 
 Je vous conseille de parler à votre ego, qui est une partie de vous-même à part entière. Dans un moment de recueillement, posez la main gauche sur votre coeur et dites à votre ego que vous le remerciez de vous alerter sur une souffrance en vous que vous devez maintenant guérir, et demandez-lui de s’effacer pour que vous puissiez entamer cette guérison. Pratiquez ensuite la méthode Ho ‘Oponopono pour vous libérer de la charge émotionnelle liée à cette situation et retrouver toute votre lucidité.
-
