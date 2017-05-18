@@ -4,7 +4,7 @@ photo: 1482792519-p-ppcccuziu-matthew-henry.jpg
 series: [la-reincarnation, la-nuit-noire-de-lame]
 intro: Comprendre ce qu'est l'âme, c'est prendre conscience que l'on est bien plus qu'un être de chair. C'est communiquer avec l'aspect éternel de notre identité.
 ---
-#L'âme est notre identité céleste#
+## L'âme est notre identité céleste ##
 
 Ma définition de l’âme est qu’il s’agit d’une énergie céleste dotée d’une conscience propre. Cette énergie étant notre souffle de vie. 
 
@@ -16,7 +16,7 @@ Chaque âme a donc une mission d’âme qui lui est propre (mais que d’autres 
 
 Cette notion d’amour universel peut s’envisager d’une multitude de manières, c’est-à-dire que par exemple un thérapeute partagera cet amour universel à travers les soins ou l’accompagnement qu’il distribuera à ses consultants ; un artiste va partager cet amour au travers de sa création ; mais une vendeuse partagera cet amour au travers des sourires et de l’attention qu’elle portera aux personnes qui viendront à elle. Il n’est donc pas question ici de choses semblant extraordinaires au sens où certaines personnes peuvent l’entendre, il est juste question d’ouverture de coeur et un simple sourire est déjà un acte d’amour.
 
-##Pourquoi est-ce que l'âme s'incarne sur Terre ?##
+## Pourquoi est-ce que l'âme s'incarne sur Terre ? ##
 
 L’âme s'incarne pour faire un apprentissage. Je nuance toujours cette notion d’apprentissage car à mon sens elle n’a pas besoin d’apprendre à faire émaner cet amour d’elle-même ou apprendre à aimer puisqu’elle EST amour, elle doit par contre arriver à se souvenir de ce qu’elle est et d’où elle vient, c’est-à-dire de la Source, du Tout. La séparation n’est qu’une illusion, est c’est exactement ce dont elle doit se rappeler.
 
@@ -32,7 +32,7 @@ Une personne ayant par exemple toujours vécu dans une grande opulence financiè
 
 Cette notion de contraste est donc importante pour l’âme car au niveau des plans élevés de conscience, au sein desquels il ne règne que l’amour, elle ne peut expérimenter aucun autre sentiment. Il est donc difficile de se connaître et de se comprendre lorsque l’on ne baigne que dans une énergie très linéaire.
 
-##Votre âme et vous##
+## Votre âme et vous ##
 
 On m’a souvent demandé si l’âme était une partie de soi ou s’il s’agissait au contraire d’une énergie indépendante.
 
