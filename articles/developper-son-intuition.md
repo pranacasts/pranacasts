@@ -5,7 +5,7 @@ series: [votre-spiritualite-au-quotidien]
 publish: 2017-04-24
 intro: L’intuition est notre baromètre intérieur. Elle représente la capacité que nous avons tous de pressentir « pré-sentir » un évènement.
 ---
-# L'intuition est un outil de développement personnel et spirituel #
+## L'intuition est un outil de développement personnel et spirituel ##
 
 L’intuition peut nous être communiquée par nos guides spirituels, notre guide intérieur ou notre âme. Elle peut s’imposer à nous de manière très subtile ou au contraire prendre la forme d’une intime conviction, d’une évidence.
 
@@ -43,7 +43,7 @@ Ces tests peuvent porter sur une multitude de choses : la météo du lendemain, 
 
 Pour ces petits tests, libérez-vous quelques moments pour vous centrer en vous en prenant quelques respirations profondes et posez-vous la question à laquelle vous souhaitez obtenir une réponse. Par exemple « est-ce que telle boulangerie sera ouverte demain ? ». Soyez attentif à ce qu’il se passe dans votre corps **sans essayer de provoquer quoi que ce soit**, car l’intuition est une chose naturelle et spontanée. Et lorsque vous avez votre réponse, quelle que soit la manière dont elle se manifeste, vérifiez. 
 
-**Accueillir les choses comme elles viennent**
+## Accueillir les choses comme elles viennent ##
 
 Il est très important de ne pas se braquer ni de jeter l’éponge lorsque l’on travaille sur son intuition. Comme tout le monde au début vous ferez des erreurs, mais qu’importe !
 
