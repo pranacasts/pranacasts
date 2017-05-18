@@ -4,7 +4,7 @@ photo: 1494570827-katie-chase-96270.jpeg
 series: [guerir-sa-blessure-dabandon, quitter-lattachement-pour-atteindre-lamour]
 intro: La blessure d'abandon est la plus fréquemment rencontrée de nos jours. Touchant aussi bien les hommes que les femmes, son influence s'étend dans tous les domaines de l'existence de l'être qui en souffre.
 ---
-# L'enfance, source de la blessure d'abandon #
+## L'enfance, source de la blessure d'abandon ##
 
 La blessure d'abandon se forme lors de l'enfance, lorsque l’enfant s’est senti abandonné, délaissé, en tout cas pas suffisamment aimé par le parent du sexe opposé. Il ne faut pas la confondre avec la blessure du rejet qui se forme dans le rapport au parent de même sexe.
 
