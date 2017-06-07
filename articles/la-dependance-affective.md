@@ -2,7 +2,7 @@ title: La dépendance affective
 tags: [relations humaines, aller mieux, autonomie, affirmation de soi]
 photo: 1496726819-kaley-dykstra-10484.jpg
 series: [guerir-sa-blessure-dabandon, quitter-lattachement-pour-atteindre-lamour]
-intro: La dépendance affective est le besoin de se sentir exister au travers du regard de l'autre. D'une construction émotionnelle bancale et n'ayant pas développé suffisamment d'estime d'elle-même, la personne qui en souffre s'accroche à tout ce qui lui semble represénter de l'amour, creusant en elle un.
+intro: La dépendance affective est le besoin de se sentir exister au travers du regard de l'autre. D'une construction émotionnelle bancale et n'ayant pas développé suffisamment d'estime d'elle-même, la personne qui en souffre s'accroche à tout ce qui lui semble représenter de l'amour.
 ---
 Depuis que je guéris les âmes et que j'ai commencé à vous accompagner au travers des ressources que je publie sur ce site, une des problématiques les plus récurrentes que je rencontre chez mes consultants est celle de la dépendance affective.
 
@@ -48,7 +48,7 @@ Le problème de la dépendance affective est qu'elle entretient une dynamique de
 
 Le dépendant affectif a besoin qu'on lui renvoie une bonne image de lui pour se sentir vivant, donc il va également prendre soin de donner la meilleure image possible de lui-même **pour s'assurer de convenir à l'autre** : il évitera de parler de ce qu'il ressent profondément, de ses angoisses, de ses peurs, de tout ce qui pourrait à son sens faire fuir l'autre. 
 
-Lorsqu'il est dans le déni, il aura tendance à s'attacher aux situations les plus faciles et à fuir les relations qu'il juge être les plus difficiles (quand il rencontre une personne qui ne cherche pas à le rassurer mais plutôt à l'amener vers l'autonomie), car il ne cherche pas à se guérir, mais à se combler, et il ne supporte pas qu'on lui renvoie ce qu'il déteste déjà tant en lui. 
+Lorsqu'il est dans le déni, il va s'attacher aux situations les plus faciles et à fuir les relations qu'il juge être les plus difficiles (quand il rencontre une personne qui ne cherche pas à le rassurer mais plutôt à l'amener vers l'autonomie), car il ne cherche pas à se guérir, mais à se combler, et il ne supporte pas qu'on lui renvoie ce qu'il déteste déjà tant en lui. 
 
 C'est donc une personne qui a tendance à se mouler, à s'adapter à son interlocuteur, à l'imiter sur certains comportements, pour recevoir une gratification émotionnelle.
 
@@ -78,7 +78,7 @@ Votre valeur ne dépend pas de ce que vous faites ou de ce que vous sacrifiez. *
 
 Vous avez l'impression de ne servir à rien ? Ca tombe bien, vous n'êtes pas un objet et n'avez donc pas à avoir une quelconque "utilité". *Dans tous les cas, votre présence prouve que l'Univers avait besoin de vous, donc votre valeur est de facto inestimable*.
 
-Je ne vais pas vous dire que guérir de la dépendance est facile. Je ne vais pas non plus vous dire qu'il vous suffit d'apprendre à vous aimer, même si c'est évidemment lorsque vous aurez trouvé cet amour en vous que vous serez guéri. Mais le conseil le plus utile que je puisse vous donner aujourd'hui pour avancer, est **d'apprendre à faire connaissance avec vous**.
+Je ne vais pas vous dire que guérir de la dépendance affective est facile. Je ne vais pas non plus vous dire qu'il vous suffit d'apprendre à vous aimer, même si c'est évidemment lorsque vous aurez trouvé cet amour en vous que vous serez guéri. Mais le conseil le plus utile que je puisse vous donner aujourd'hui pour avancer, est **d'apprendre à faire connaissance avec vous**.
 
 Ce peut être votre premier pas vers la guérison : laissez vos émotions s'exprimer et écoutez-les ; observez comment vous réagissez dans telle ou telle situation ; faites une liste des comportements humains qui vous font du mal ; repensez à votre enfance, vos liens avec vos parents, voyez ce qui est douloureux. Faites un état des lieux de vos goûts, de vos envies, de ce qui vous procure de la joie quand vous êtes seul. Pensez à vos talents, même ceux que vous dédaignez (que faites-vous bien ? de quoi êtes-vous fier ?).
 
