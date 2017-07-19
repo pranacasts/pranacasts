@@ -28,7 +28,7 @@ La prise de conscience, qui consiste à mettre en lumière une partie de vous en
 
 Par exemple, lorsque vous rencontrez un nouveau partenaire potentiel, vous pouvez observer tout ce qu’il se passe en vous avec un œil neutre et bienveillant. Vous pouvez vous observer en train de vous dire, «il ne sera jamais assez bien pour moi», ou «il va forcément me trahir lui aussi», «de toute façon, il finira par se rendre compte que je suis nul(le)». Vous pouvez ressentir une attirance pour la personne tout autant qu’un sentiment de peur, d’insatisfaction, de colère, de supériorité.
 
-> La question que vous devriez vous poser à cet instant précis est la suivante : est-ce que ces mots ou ces émotions appartiennent à mon mental ou à mon cœur ? Est-ce mon être entier vibre en accord avec ce qu’il se passe en moi, ou est-ce que je suis en train de me raconter une histoire ?
+> La question que vous devriez vous poser à cet instant précis est la suivante : est-ce que ces mots ou ces émotions appartiennent à mon mental ou à mon cœur ? Est-ce que mon être entier vibre en accord avec ce qu’il se passe en moi, ou est-ce que je suis en train de me raconter une histoire ?
 
 Car bien souvent, nous nous racontons de nombreuses histoires autour d’une situation et nous nous éloignons de ce que l’on appelle la vue directe, autrement dit une vue qui ne se perd pas dans les méandres de la pensée discursive. La prise de conscience va vous permettre de dire :  stop !
 
