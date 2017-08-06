@@ -2,7 +2,7 @@ title: La mission de vie
 tags: [écouter son âme]
 photo: 1501979285-sebastien-marchand-9747.jpg
 series: [la-nuit-noire-de-lame]
-intro: La mission de vie correspond à la raison d'incarnation de notre âme. Elle vient en fait répondre à la question : pourquoi je vis ? La trouver n'est pas difficile dès lors que l'on est connecté à soi.
+intro: La mission de vie correspond à la raison d'incarnation de notre âme. Elle vient en fait répondre à la question de la raison de notre existence. La trouver n'est pas difficile dès lors que l'on est connecté à soi.
 ---
 Notre âme s'incarne pour venir chercher un contraste auquel elle n'a pas accès au sein des plans élevés de conscience. En effet, là où il n'existe que l'amour il n'est pas possible de se découvrir vraiment. C'est dans l'épreuve que l'on en vient à se poser des questions fondamentales, à s'intéresser au sens profond de notre vie, à se connaître sous différents aspects et donc à s'améliorer, à apprendre à s'aimer davantage.
 
