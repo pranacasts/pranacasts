@@ -51,4 +51,3 @@ Mon conseil est très simple, mais pourtant le plus difficile à suivre pour bie
 A chaque fois que vous écouterez ce qui vient du plus profond de vous-même, c'est que vous serez en alignement avec votre âme. Certes, sa voix vous poussera parfois à totalement bousculer votre existence, votre petit confort, à vous libérer de certains liens, en construire d'autres, mais c'est en écoutant cette voix que vous pourrez trouver l'épanouissement sur du long terme. 
 
 La vie n'est pas vouée à être un enfermement de soi, et vous ne gagnerez rien à tenter détouffer vos besoins, si ce n'est que d'attirer à vous une [nuit noire de l'âme](https://pranacanal.com/articles/la-nuit-noire-de-lame).
-
