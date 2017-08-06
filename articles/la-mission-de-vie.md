@@ -41,7 +41,7 @@ Donc je vous conseille de faire un bilan des situations douloureuses les plus ma
 
 Ce sont quelques-unes des questions qui vous permettront d'avoir une vision plus claire de ce que vous devez dépasser, et donc quel est l'apprentissage que vous devez faire. En bref, quelle est votre mission de vie.
 
-## S'aligner à son chemin de vie##
+##S'aligner à son chemin de vie##
 
 Une fois que vous aurez mis en lumière l'objet de votre mission de vie, il sera temps de vous pencher sur la manière dont vivre au quotidien en accord avec votre âme.
 
