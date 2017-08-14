@@ -62,6 +62,6 @@ Enfin, si vous êtes totalement épanouie en tant que mère au foyer mais que vo
 
 Un dernier mot car elles ne sont pas à oublier, si vous êtes une femme sans enfants, vous pouvez aussi faire un diagnostic : avez-vous le sentiment de profiter vraiment de votre temps ? De le dédier à des choses qui vous font plaisir et vous épanouissent ? Vous rendez-vous heureuse ?
 
-> Je crois en la femme qui se sent libre d'être qui elle veut, comme elle veut. Qui assume d'avoir besoin de penser à elle et d'exister autrement que dans la nécessité de satisfaire les besoins des autres. Qui se donne le droit d'être sexy et douce, mais aussi d'imposer son autorité naturelle quand c'est nécessaire. La femme illimitée qui ne rendre dans aucune case.
+> Je crois en la femme qui se sent libre d'être qui elle veut, comme elle veut. Qui assume d'avoir besoin de penser à elle et d'exister autrement que dans la nécessité de satisfaire les besoins des autres. Qui se donne le droit d'être sexy et douce, mais aussi d'imposer son autorité naturelle quand c'est nécessaire. La femme illimitée qui ne rentre dans aucune case.
 
 
