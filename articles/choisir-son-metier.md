@@ -8,7 +8,7 @@ intro: Que ce soit à la fin des études supérieures ou encore dans le cadre d'
 
 Aussi étonnant que cela puisse paraître, je ne recommande pas forcément de choisir son métier en fonction de ses passions. Pourquoi ? **Parce qu'être passionné par une chose ne signifie pas souhaiter faire cette chose au quotidien**.
 
-Par ailleurs, la passion peut être très éphémère et ce qui vous semblait si prenant à un moment de votre vie peut quelques temps plus tard vous désintéresser totalement, non pas parce que vous avez cédé à un caprice mais parce que vous évoluez et que surtout, la passion étant liée à l'émotion, lorsque l'intensite de cette dernière baisse vous pouvez avoir le sentiment de ne pas avoir pris la bonne voie.
+Par ailleurs, la passion peut être très éphémère et ce qui vous semblait si prenant à un moment de votre vie peut quelques temps plus tard vous désintéresser totalement, non pas parce que vous avez cédé à un caprice mais parce que vous évoluez et que surtout, la passion étant liée à l'émotion, lorsque l'intensité de cette dernière baisse vous pouvez avoir le sentiment de ne pas avoir pris la bonne voie.
 
 De plus, le problème de la passion est que parfois nous en avons tellement qu'il peut être très compliqué de faire un choix car encore une fois, l'émotion ressentie peut nous donner le sentiment de renier une chose importante pour nous au profit d'une autre. Dans ce cas il devient compliqué de se fixer car on a l'impression de tout aimer, sans être capable de faire **la distinction entre aimer faire et l'envie de faire au quotidien**.
 
@@ -26,7 +26,7 @@ C'est en cela qu'il peut être dangereux de choisir son métier uniquement autou
 
 Il faut aussi préciser que certaines personnes n'ont pas de passion, et que cela est parfaitement sain ! Nous n'avons pas besoin d'être passionné par une chose pour l'aimer, et j'ai déjà accompagné des personnes qui lors de leur première consultation se sentaient totalement déstabilisées parce qu'elles pensaient que ne pas avoir de passion signifie être aigri ou ne pas savoir prendre de plaisir. Si c'est votre cas, déculpabilisez-vous car vous êtes tout-à-fait normal !
 
-Donc dans le cadre de la recherche d'un métier, la question serait plutôt "qu'est-ce que je prends plaisir à faire, et que j'aurais envie de faire au quotidien malgré les contraintes possibles" plutôt que "quelle est ma passion".
+Donc dans le cadre de la recherche d'un métier, la question serait plutôt "qu'est-ce que je prends plaisir à faire, et que j'aurais envie de faire au quotidien malgré les contraintes possibles ?" plutôt que "quelle est ma passion ?".
 
 ## Vie privée et vie professionnelle ##
 
