@@ -30,7 +30,7 @@ Malaise, angoisse, agitation, anxiété et insatisfaction sont le produit d’un
 
 Il y a quelque chose de presque démentiel à se lever tous les matins que la vie nous offre, avec la motivation d’acquérir davantage d’argent et de prestige, des illusions du monde phénoménal qui s’évanouissent en une expiration, la toute dernière.
 
-Tant que le leitmotiv quotidien prend racine dans ces formes-pensées rattachées aux « moi », « mon », « encore plus », « je veux », alors vous continuerez de croire que la plénitude se trouve dans le fait d’avoir et de vouloir. **Vous fuyez qui vous êtes vraiment, un être déjà complet et comblé par nature**.
+Tant que le leitmotiv quotidien prend racine dans ces formes-pensées rattachées aux «moi», «mon», «encore plus», «je veux», alors vous continuerez de croire que la plénitude se trouve dans le fait d’avoir et de vouloir. **Vous fuyez qui vous êtes vraiment, un être déjà complet et comblé par nature**.
 
 ##Se libérer de la tension du « vouloir » pour vivre mieux, ici et maintenant##
 
