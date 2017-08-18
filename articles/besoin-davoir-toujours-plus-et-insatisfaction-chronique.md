@@ -1,5 +1,5 @@
 title: Besoin d’avoir toujours plus et insatisfaction chronique
-tags: |abondance]
+tags: [abondance]
 photo: 1503029542-alexa-mazzarello-316937.jpg
 series: [distinguer-mes-emotions-de-mon-ego]
 intro: Le fait de ne jamais se satisfaire de ce que la vie nous offre revient à faire dépendre notre bonheur d'éléments extérieurs, sensés nous combler, en oubliant que chaque besoin créé par l'ego n'a pour seule vocation que de nous permettre, pour une courte durée, de nous donner une valeur que nous ne trouvons pas dans notre lien à nous-même.
