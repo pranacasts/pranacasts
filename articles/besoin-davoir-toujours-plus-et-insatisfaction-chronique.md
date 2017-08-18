@@ -1,7 +1,7 @@
 title: Besoin d’avoir toujours plus et insatisfaction chronique
-series: [distinguer-mes-emotions-de-mon-ego]
 tags: |abondance]
 photo: 1503029542-alexa-mazzarello-316937.jpg
+series: [distinguer-mes-emotions-de-mon-ego]
 intro: Le fait de ne jamais se satisfaire de ce que la vie nous offre revient à faire dépendre notre bonheur d'éléments extérieurs, sensés nous combler, en oubliant que chaque besoin créé par l'ego n'a pour seule vocation que de nous permettre, pour une courte durée, de nous donner une valeur que nous ne trouvons pas dans notre lien à nous-même.
 ---
 Comme nous l’explique Eckhart Tolle, [l’ego](https://pranacanal.com/articles/votre-ego-vous-parle) s’identifie avec le fait d’avoir, de détenir et sa satisfaction à posséder reste toujours de très courte durée. Pourquoi cela ? Pour chaque chose que nous obtenons, un sentiment de complétude s’installe mais il n’est que provisoire car l'ego confond avoir et être. Et aussitôt que notre gain d’argent, de gloire ou de matériel a comblé notre structure égotique, alors une nouvelle insatisfaction va émerger.
