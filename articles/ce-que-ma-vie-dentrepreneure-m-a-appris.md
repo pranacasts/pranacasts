@@ -48,7 +48,7 @@ Je vous encourage aussi à investir pour intégrer des regroupements d'entrepren
 
 A vouloir trop en faire, on se perd. Vous êtes humain(e), ce qui signifie qu'à des moments vous éprouverez peut-être de la lassitude, du découragement, l'envie de faire autre chose. Pour éviter de tout envoyer valser et d'éprouver de moins-en-moins de plaisir à vous investir dans votre activité (car vous n'avez certainement pas quitté le salariat pour ça !), octroyez-vous des moments de décompression.
 
-Aujourd'hui, et à part à des périodes bien définies lorsque par exemple je crée un nouvel accompagnement, je m'astreins à arrêter de travailler à partir d'une certaine heure. De même, je me réserve des journées où de plus grandes périodes pendant lesquelles il n'est question ni de travail, ni de projets, juste de plaisir et de partage avec les gens que j'aime.
+Aujourd'hui, et à part à des périodes bien définies lorsque par exemple je crée un nouvel accompagnement, je m'astreins à arrêter de travailler à partir d'une certaine heure. De même, je me réserve des journées ou de plus grandes périodes pendant lesquelles il n'est question ni de travail, ni de projets, juste de plaisir et de partage avec les gens que j'aime.
 
 Sachez qu'aller jusqu'à l'épuisement ne vous fera pas réussir plus vite, au contraire. Donc apprenez à reconnaître vos limites, à respecter votre fatigue et à prendre du temps pour vous. Certaines choses peuvent attendre, et ces bulles de décompression comme je les appelle, vous permettront de vous remettre à la tâche avec davantage de motivation, et souvent même de nouvelles idées car prendre du recul est toujours bénéfique. 
 
@@ -92,7 +92,7 @@ Il est inutile de vous inventer une vie, une équipe de vingt personnes à vos c
 
 Soyez vous-même, car c'est avec le vous "brut" que le lien émotionnel se créera. Pourquoi je parle d'émotions ? Parce qu'à cette époque où l'on trouve de tout sur internet, ce qui vous différenciera sera justement votre personnalité et votre manière d'intéragir avec les autres.
 
-Les gens vous aimeront pour votre personnalité à vous, pour votre histoire et votre manière d'exprimer les choses, pour ce que vous êtes tout simplement. Donc il est inutile de vous inventer une histoire de toute pièce car ça marchera peut-être un moment, mais tôt ou tard vous serez rattrapé par vos mensonges.  
+Les gens vous aimeront pour votre personnalité à vous, pour votre histoire et votre manière d'exprimer les choses, pour ce que vous êtes tout simplement. Donc il est inutile de vous inventer une histoire de toutes pièces car ça marchera peut-être un moment, mais tôt ou tard vous serez rattrapé par vos mensonges.  
 
 > C'est un peu comme pour une histoire d'amour, la phase de séduction et les premiers mois sont faciles, c'est d'entretenir tout ça sur plusieurs années, voire à jamais, qui est le vrai challenge.
 
