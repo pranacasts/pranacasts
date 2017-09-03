@@ -71,5 +71,5 @@ Le danger de la projection, est qu'elle est totalement illusoire. Qu'elle entret
 
 Il est toujours intéressant de se demander ce que l'on peut faire maintenant pour vivre ce à quoi nous aspirons. Par exemple, si vous aimeriez rencontrer quelqu'un pour partager des moments à deux, voyager, commencez par être ce partenaire pour vous et provoquez des moments de plaisir. Pourquoi est-ce qu'une personne vous apporterait une joie que vous ne vous accordez pas ? 
 
-Plus on a une vision lucide des choses et nos propres barrières intérieures, et plus on peut se permettre de manifester des choses totalement différentes au sein de nos vies. Et se dire que finalement, ce bonheur après lequel nous avons passé tant de temps à courir était juste là.
+Plus on a une vision lucide des choses et de nos propres barrières intérieures, et plus on peut se permettre de manifester des choses totalement différentes au sein de nos vies. Et se dire que finalement, ce bonheur après lequel nous avons passé tant de temps à courir était juste là.
 
