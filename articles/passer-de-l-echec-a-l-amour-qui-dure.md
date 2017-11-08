@@ -64,7 +64,7 @@ Elles suivent, attendent d'être sollicitées, prises en charge comme des enfant
 
 Le couple est à mon sens le plus beau, mais aussi le plus difficile des partenariats. Il requiert des remises en question permanentes, des compromis, des efforts, de l'ouverture. A chaque moment il a besoin d'être réinventé, nourri, entretenu comme un jardin. Je ne crois pas au fait que l'on puisse du jour-au-lendemain ne plus aimer une personne. Mais plutôt qu'une succession de preuves de désamour et de désinvestissement, de l'un ou des deux des partenaires, va venir tarir la source d'amour du coeur de l'autre partenaire à son égard.
 
-###La valeur du couple dépend de ce que l'on y met###
+##La valeur du couple dépend de ce que l'on y met##
 
 J'ai déjà parlé de la nécessité de [se poser certaines questions avant d'entrer en relation](https://pranacanal.com/articles/attirer-lamour-et-reussir-son-nouveau-depart-amoureux), de faire un point sur soi. Et il est fondamental de se demander, par respect pour soi mais aussi pour notre futur partenaire amoureux, ce que l'on est prêt à donner, de quelle manière on peut embellir sa vie **à lui**.
 
@@ -78,7 +78,7 @@ Participer à un couple, ce n'est pas seulement être là. Tant de personnes viv
 
 La participation, c'est comprendre que le couple ne s'entretient pas de lui-même, ni par les seuls efforts de l'autre. Si vous êtes frustré dans votre histoire, vous en êtes à un niveau ou à un autre pleinement responsable.
 
-###Vers l'amour vrai###
+##Vers l'amour vrai##
 
 Ce qui est magnifique, c'est que l'on peut tous changer. Mais que tout changement ne passe que par l'acceptation de prendre la responsabilité de ce qui nous arrive.
 
@@ -90,7 +90,7 @@ Et ensuite ? Apprenez à donner sans attendre. A donner le meilleur de ce que vo
 
 Soyez réaliste. La peur d'être seul pousse bien des êtres à persister dans des histoires alors mêmes qu'ils sentent en eux que quelque chose ne va pas, que c'est juste une relation confortable, qu'il y manque une donnée essentielle.
 
- >La "bonne" personne pour vous ne sera pas celle qui ira toujours dans votre sens, qui vous rassurera, qui vous apportera tout ce que vous souhaitez. C'est celle qui, au contraire, vous dira la vérité car elle sera suffisamment bienveillante et aimante envers vous pour ne pas chercher à vous mentir et qui voudra vous voir vous élever et devenir la meilleure version de vous-même.
+ > La "bonne" personne pour vous ne sera pas celle qui ira toujours dans votre sens, qui vous rassurera, qui vous apportera tout ce que vous souhaitez. C'est celle qui, au contraire, vous dira la vérité car elle sera suffisamment bienveillante et aimante envers vous pour ne pas chercher à vous mentir et qui voudra vous voir vous élever et devenir la meilleure version de vous-même.
  
  Il y a toujours une douleur avant la transformation, parce que c'est quand on a mal qu'on se rend compte qu'il est nécessaire de changer. La recherche de la facilité vous ramènera sans cesse au point de départ.
  
