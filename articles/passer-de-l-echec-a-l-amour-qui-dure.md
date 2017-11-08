@@ -1,7 +1,7 @@
 title: Passer de l'échec à l'amour qui dure
 tags: [amour]
 photo: [1510123054-gus-moretta-371897.jpeg]
-intro: A l'heure où les couples se font aussi vite qu'ils se défont, il existe une question que peu de personnes se posent et qui, pourtant, va conditionner leur capacité à vivre une relation épanouissante : qu'ai-je à apporter à une autre personne ?
+intro: Succession d'échecs amoureux, relations qui se ressemblent, frustrations permanentes, l'envie peut être tentante de parler de coup du sort. Pourtant, se poser la bonne question peut permettre de transformer sa vie sentimentale et de construire un couple stable.
 ---
 Les personnes que j'accompagne sont de tous milieux sociaux, de tous âges, de toutes cultures. Et quand elles rencontrent des difficultés dans leurs relations amoureuses, ce sont au final les mêmes paroles que j'entends :
 
@@ -94,7 +94,7 @@ Soyez réaliste. La peur d'être seul pousse bien des êtres à persister dans d
  
  Il y a toujours une douleur avant la transformation, parce que c'est quand on a mal qu'on se rend compte qu'il est nécessaire de changer. La recherche de la facilité vous ramènera sans cesse au point de départ.
  
- **Alors, êtes-vous prêt pour l'amour vrai ?**
+ **Alors, êtes-vous prêt pour l'amour vrai, celui qui dure ?**
 
 
 
