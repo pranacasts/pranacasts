@@ -1,6 +1,6 @@
 title: Passer de l'échec à l'amour qui dure
 tags: [amour]
-photo: [1510123054-gus-moretta-371897.jpeg]
+photo: 1510123054-gus-moretta-371897.jpeg
 intro: Succession d'échecs amoureux, relations qui se ressemblent, frustrations permanentes, l'envie peut être tentante de parler de coup du sort. Pourtant, se poser la bonne question peut permettre de transformer sa vie sentimentale et de construire un couple stable.
 ---
 Les personnes que j'accompagne sont de tous milieux sociaux, de tous âges, de toutes cultures. Et quand elles rencontrent des difficultés dans leurs relations amoureuses, ce sont au final les mêmes paroles que j'entends :
