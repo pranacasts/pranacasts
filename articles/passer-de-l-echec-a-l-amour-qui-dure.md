@@ -16,11 +16,11 @@ Cette croyance selon laquelle notre relation est la voie d'accès au bonheur. Qu
 
 Lorsque nous naissons, et pendant de longues années, nous sommes des êtres totalement dépendants. Nos parents, lorsqu'ils assument correctement cette fonction, sont les personnes chargées de répondre à nos besoins (et je ne parle pas de désirs, mais bel-et-bien de besoins), qu'ils soient affectifs, matériels, psychologiques...
 
-Ce fonctionnement n'est pas destiné à durer. Nous devons à un moment ou un autre nous autonomiser et, si notre environnement émotionnel nous l'a permis, devenir des êtres capables de combler à nos propres besoins. 
+Ce fonctionnement n'est pas destiné à durer. Nous devons à un moment ou un autre nous autonomiser et, si notre environnement émotionnel nous l'a permis, devenir des êtres capables de combler nos propres besoins. 
 
 > Cela ne signifie pas ne plus avoir besoin de qui que ce soit, car le lien à l'autre est une nécessité, mais ne pas compter sur les autres pour assouvir des choses que nous sommes sensés nous apporter par nous-mêmes.
 
-Or, beaucoup de personnes restent dans cet état enfantin : elles attendent de leur partenaire qu'il satisfasse leurs besoins, qu'il les comblent, qu'il leur apporte sur un plateau une forme de satisfaction permanente, leur permettant ainsi de ne jamais devenir adultes et de se complaire dans un **rôle d'asssisté**. 
+Or, beaucoup de personnes restent dans cet état enfantin : elles attendent de leur partenaire qu'il satisfasse leurs besoins, qu'il les comblent, qu'il leur apportent sur un plateau une forme de satisfaction permanente, leur permettant ainsi de ne jamais devenir adultes et de se complaire dans un **rôle d'asssisté**. 
 
 Alors la plupart du temps, lorsqu'elles ne parviennent pas à obtenir de l'autre ce qu'elles veulent, **ce qu'elles considèrent comme un dû**, elles vont saboter leur histoire, se remettre le plus vite possible dans une autre histoire qui, tôt ou tard, leur apportera les mêmes insatisfactions car le problème n'est pas tant les personnes qu'elles attirent, mais plutôt *le fait que par leur immaturité affective, elles ne considèrent pas l'autre comme un alter-ego, mais comme un être devant jouer le rôle de parent de substitution et les combler*. 
 
@@ -42,7 +42,7 @@ Ce qui m'a choquée dans ce couple c'est que, autant la femme souhaitait réelle
 
 Lorsque j'ai demandé à cet homme comment il prenait soin de sa femme, il s'est contenté de me dire : "je suis là tous les jours avec elle". D'après lui, sa seule présence était une participation suffisante à sa vie de couple.
 
-Mais quand je lui ai demandé de changer de perspective, et de se mettre vraiment à la place de sa femme ; de s'imaginer seul à la maison gérer les tâches du quotidien ; seul à la maison lorsque l'autre partage des moments de plaisir à l'extérieur du couple alors même qu'il les refuse dans le couple ; de s'imaginer face à un partenaire qui ne fait rien pour rallumer le désir, surprendre, égayer le quotidien par de petites attentions, il m'a dit qu'à la place de sa femme il se sentirait "minable". 
+Mais quand je lui ai demandé de changer de perspective, et de se mettre vraiment à la place de sa femme ; de s'imaginer seul à la maison à gérer les tâches du quotidien ; seul à la maison lorsque l'autre partage des moments de plaisir à l'extérieur du couple alors même qu'il les refuse dans le couple ; de s'imaginer face à un partenaire qui ne fait rien pour rallumer le désir, surprendre, égayer le quotidien par de petites attentions, il m'a dit qu'à la place de sa femme il se sentirait "minable". 
 
 Et c'est justement parce que sa femme se sentait minable, inexistante à ses yeux, qu'elle lui faisait tous ces reproches, car en fait elle réclamait son attention et, ne l'obtenant pas par la douceur, elle ne pouvait exprimer sa frustration que par les cris, les reproches, les crises et les pleurs.
 
@@ -74,7 +74,7 @@ J'ai accompagné une femme d'une cinquantaine d'années, désespérée d'être s
 
 En fait, elle ne recherchait pas un partenaire amoureux. Elle recherchait une personne qui pourrait l'aider à embellir sa vie, lui apporter un confort. Or, comment peut-on souhaiter attirer à soi une personne pure de coeur, lorsque l'on recherche en fait un être capable de nous apporter des choses que l'on n'est pas capable d'obtenir soi-même ? Encore un exemple d'une envie d'être pris en charge.
 
-Participer à un couple, ce n'est pas seulement être là. Tant de personnes vivent, mangent et dorment ensemble chaque jour sans que rien de vraiment profond de soit construit entre elles.
+Participer à un couple, ce n'est pas seulement être là. Tant de personnes vivent, mangent et dorment ensemble chaque jour sans que rien de vraiment profond ne soit construit entre elles.
 
 La participation, c'est comprendre que le couple ne s'entretient pas de lui-même, ni par les seuls efforts de l'autre. Si vous êtes frustré dans votre histoire, vous en êtes à un niveau ou à un autre pleinement responsable.
 
