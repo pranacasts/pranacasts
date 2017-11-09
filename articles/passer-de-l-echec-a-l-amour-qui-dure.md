@@ -56,7 +56,7 @@ Cela signifie qu'on est sensé entré dans une histoire non pas pour se combler 
 
 *Partager signifie que l'on est responsable à 50% de l'avenir de son couple.*
 
- Qu'avant de demander de l'amour, il faut en donner. Avant d'attendre de l'autre qu'il nous surprenne, il faut le surprendre. Avant d'attendre de l'autre qu'il nous donne envie de lui, il faut nous-même faire tout ce qui est nécessaire pour entretenir le désir. Si vous n'avez plus envie de faire l'amour avec une personne que vous avez désirée par le passé, que faites-vous concrètement pour retrouver et redonner l'envie ? Quels jeux/moments privilégiés organisez-vous pour raviver la flamme ? Considérez-vous vraiment que vous êtes tellement irrésistible que l'on devrait avoir envie de vous sans que vous n'ayez aucun effort à fournir pour cela, et que les problèmes de libido de votre couple sont totalement étrangers à votre personne ? 
+ Qu'avant de demander de l'amour, il faut en donner. Avant d'attendre de l'autre qu'il nous surprenne, il faut le surprendre. Avant d'attendre de l'autre qu'il nous donne envie de lui, il faut nous-même faire tout ce qui est nécessaire pour entretenir le désir. Si vous n'avez plus envie de faire l'amour avec une personne que vous avez désirée par le passé, que faites-vous concrètement pour retrouver et redonner l'envie ? Quels jeux/moments privilégiés organisez-vous pour raviver la flamme ? 
 
 > Et toutes ces illusions dans lesquelles se bercent beaucoup de personnes vont les mener à répéter sans cesse les mêmes échecs sentimentaux. **Parce qu'à aucun moment elles ne vont se responsabiliser face à leur vie amoureuse et s'en rendre participatives**. 
 
@@ -88,11 +88,9 @@ Commencez par prendre conscience de vos qualités. Par noter les attentes que vo
 
 Et ensuite ? Apprenez à donner sans attendre. A donner le meilleur de ce que vous avez, juste pour le plaisir de voir l'autre sourire. Si votre conjoint vous reproche votre manque d'investissement, donnez-lui ce qu'il demande, donnez-lui du temps, de l'amour, de la présence, du rire, du plaisir. Si vous ne changez pas votre attitude, votre situation ne changera pas non plus.
 
-Soyez réaliste. La peur d'être seul pousse bien des êtres à persister dans des histoires alors mêmes qu'ils sentent en eux que quelque chose ne va pas, que c'est juste une relation confortable, qu'il y manque une donnée essentielle.
-
  > La "bonne" personne pour vous ne sera pas celle qui ira toujours dans votre sens, qui vous rassurera, qui vous apportera tout ce que vous souhaitez. C'est celle qui, au contraire, vous dira la vérité car elle sera suffisamment bienveillante et aimante envers vous pour ne pas chercher à vous mentir et qui voudra vous voir vous élever et devenir la meilleure version de vous-même.
  
- Il y a toujours une douleur avant la transformation, parce que c'est quand on a mal qu'on se rend compte qu'il est nécessaire de changer. La recherche de la facilité vous ramènera sans cesse au point de départ.
+Vous pouvez choisir de passer de relation en relation, de perpétuer cette recherche de la facilité. Mais n'oubliez pas que vous seul avez la capacité de vous combler.
  
  **Alors, êtes-vous prêt pour l'amour vrai, celui qui dure ?**
 
