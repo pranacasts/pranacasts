@@ -20,7 +20,7 @@ Ce fonctionnement n'est pas destiné à durer. Nous devons à un moment ou un au
 
 > Cela ne signifie pas ne plus avoir besoin de qui que ce soit, car le lien à l'autre est une nécessité, mais ne pas compter sur les autres pour assouvir des choses que nous sommes sensés nous apporter par nous-mêmes.
 
-Or, beaucoup de personnes restent dans cet état enfantin : elles attendent de leur partenaire qu'il satisfasse leurs besoins, qu'il les comblent, qu'il leur apportent sur un plateau une forme de satisfaction permanente, leur permettant ainsi de ne jamais devenir adultes et de se complaire dans un **rôle d'asssisté**. 
+Or, beaucoup de personnes restent dans cet état enfantin : elles attendent de leur partenaire qu'il satisfasse leurs besoins, qu'il les comblent, qu'il leur apportent sur un plateau une forme de satisfaction permanente, leur permettant ainsi de ne jamais devenir adultes et de se complaire dans un **rôle d'assisté**. 
 
 Alors la plupart du temps, lorsqu'elles ne parviennent pas à obtenir de l'autre ce qu'elles veulent, **ce qu'elles considèrent comme un dû**, elles vont saboter leur histoire, se remettre le plus vite possible dans une autre histoire qui, tôt ou tard, leur apportera les mêmes insatisfactions car le problème n'est pas tant les personnes qu'elles attirent, mais plutôt *le fait que par leur immaturité affective, elles ne considèrent pas l'autre comme un alter-ego, mais comme un être devant jouer le rôle de parent de substitution et les combler*. 
 
@@ -52,7 +52,7 @@ Je lui ai alors posé cette question, que je vous invite à vous poser si vous v
 
 Je dis souvent que le couple est l'espace dans lequel deux personnes se donnent et s'investissent pour faire sortir le meilleur de chacune d'elles, et donc le meilleur de leur histoire.
 
-Cela signifie qu'on est sensé entré dans une histoire non pas pour se combler soi, pour être guidé, couvé, accompagné. Non pas dans la volonté de trouver la personne la moins "prise de tête" possible, celle qui ne nous confrontera jamais à nos comportements, à nos mauvaises habitudes, ce qu'il nous faudrait améliorer ; mais plutôt dans **la volonté de partager**.
+Cela signifie qu'on est sensé entrer dans une histoire non pas pour se combler soi, pour être guidé, couvé, accompagné. Non pas dans la volonté de trouver la personne la moins "prise de tête" possible, celle qui ne nous confrontera jamais à nos comportements, à nos mauvaises habitudes, ce qu'il nous faudrait améliorer ; mais plutôt dans **la volonté de partager**.
 
 *Partager signifie que l'on est responsable à 50% de l'avenir de son couple.*
 
