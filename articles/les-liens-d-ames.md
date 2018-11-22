@@ -65,7 +65,7 @@ Certaines de nos âmes soeurs choisissent aussi de s'incarner en même temps que
 
 On constate beaucoup de ces liens au niveau amical ou familial, ces personnes que l'on croise et qui, par leur simple bienveillance nous font du bien. Elles savent nous écouter sans nous juger, elles nous apaisent, elles nous font simplement du bien et apparaissent comme des rocs sur lesquels nous savons pouvoir nous appuyer.
 
-> Dans tous les cas, il est fondamental de comprendre que ce n'est pas parce que nous avons un lien d'âme avec une personne, que cela signifie qu'elle est amenée à rester dans notre vie. L'important n'est pas le temps qu'elle passe à nos côtés, mais ce qu'elle va nous permettre de comprendre et de travailler. Il est donc fondamental, pour éviter toute souffrance inutile, de s'entêter dans des liens destructeurs.
+> Dans tous les cas, il est fondamental de comprendre que ce n'est pas parce que nous avons un lien d'âme avec une personne, que cela signifie qu'elle est amenée à rester dans notre vie. L'important n'est pas le temps qu'elle passe à nos côtés, mais ce qu'elle va nous permettre de comprendre et de travailler. Pour éviter toute souffrance inutile, cessons de nous entêter dans des liens destructeurs.
 
 J'ai reçu en consultation beaucoup de personnes qui refusaient de mettre un terme à une relation sentimentale douloureuse parce qu'elles l'entretenaient avec une âme soeur. Elles étaient tellement aveuglées par leur espoir d'une relation de type "conte de fées", qu'elles refusaient de lâcher ce lien.
 
